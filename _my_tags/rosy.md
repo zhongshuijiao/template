@@ -1,0 +1,4 @@
+---
+slug: rosy
+name: rosy
+---
