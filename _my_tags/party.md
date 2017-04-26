@@ -1,0 +1,4 @@
+---
+slug: party
+name: party
+---
