@@ -1,0 +1,4 @@
+---
+slug: yasmine
+name: yasmine
+---
