@@ -1,0 +1,4 @@
+---
+slug: magnolia
+name: magnolia
+---
