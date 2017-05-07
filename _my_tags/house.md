@@ -1,0 +1,4 @@
+---
+slug: house
+name: house
+---
