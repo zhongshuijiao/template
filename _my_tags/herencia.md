@@ -1,0 +1,4 @@
+---
+slug: herencia
+name: herencia
+---

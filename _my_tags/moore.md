@@ -1,0 +1,4 @@
+---
+slug: moore
+name: moore
+---
