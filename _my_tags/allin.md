@@ -1,0 +1,4 @@
+---
+slug: allin
+name: allin
+---
