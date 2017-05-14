@@ -1,0 +1,4 @@
+---
+slug: fantaise
+name: fantaise
+---
