@@ -1,0 +1,4 @@
+---
+slug: hadassa
+name: Hadassa
+---
