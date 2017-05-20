@@ -1,0 +1,4 @@
+---
+slug: golden
+name: golden
+---
