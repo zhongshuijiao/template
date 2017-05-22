@@ -1,0 +1,4 @@
+---
+slug: beatrice
+name: beatrice
+---
