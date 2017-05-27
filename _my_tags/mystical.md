@@ -1,0 +1,4 @@
+---
+slug: mystical
+name: mystical
+---
