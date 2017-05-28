@@ -1,0 +1,4 @@
+---
+slug: royal
+name: royal
+---
