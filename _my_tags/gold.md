@@ -1,0 +1,4 @@
+---
+slug: gold
+name: gold
+---
