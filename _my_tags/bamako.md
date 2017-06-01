@@ -1,0 +1,4 @@
+---
+slug: bamako
+name: bamako
+---
