@@ -1,0 +1,4 @@
+---
+slug: manu
+name: manu
+---
