@@ -1,0 +1,4 @@
+---
+slug: train
+name: train
+---
