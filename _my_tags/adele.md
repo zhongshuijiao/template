@@ -1,0 +1,4 @@
+---
+slug: adele
+name: adele
+---
