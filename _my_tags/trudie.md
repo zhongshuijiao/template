@@ -1,0 +1,4 @@
+---
+slug: trudie
+name: trudie
+---
