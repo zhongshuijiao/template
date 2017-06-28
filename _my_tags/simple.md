@@ -1,0 +1,4 @@
+---
+slug: simple
+name: simple
+---
