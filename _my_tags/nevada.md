@@ -1,0 +1,4 @@
+---
+slug: nevada
+name: nevada
+---

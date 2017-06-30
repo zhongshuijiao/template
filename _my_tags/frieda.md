@@ -1,0 +1,4 @@
+---
+slug: frieda
+name: frieda
+---
