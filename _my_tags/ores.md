@@ -1,0 +1,4 @@
+---
+slug: ores
+name: ores
+---
