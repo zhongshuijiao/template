@@ -1,0 +1,4 @@
+---
+slug: arties
+name: arties
+---
