@@ -1,0 +1,20 @@
+---
+layout: post
+date: '2017-02-02'
+title: "Eddy K. 2018 CT203 Chapel Train Sleeveless V-Neck Mermaid Elegant Ivory Hall Lace Covered Button Beading Spring Wedding Dress"
+category: Eddy K.
+tags: ["lace","button","eddy","chapel","bridesmaid"]
+image: http://img.hectodress.com/51889-thickbox_default/eddy-k-2018-ct203-chapel-train-sleeveless-v-neck-mermaid-elegant-ivory-hall-lace-covered-button-beading-spring-wedding-dress.jpg
+---
+Eddy K. 2018 CT203 Chapel Train Sleeveless V-Neck Mermaid Elegant Ivory Hall Lace Covered Button Beading Spring Wedding Dress
+
+On Sales: **$539.98**
+<a href="https://www.hectodress.com/eddy-k-/16385-eddy-k-2018-ct203-chapel-train-sleeveless-v-neck-mermaid-elegant-ivory-hall-lace-covered-button-beading-spring-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/51889-thickbox_default/eddy-k-2018-ct203-chapel-train-sleeveless-v-neck-mermaid-elegant-ivory-hall-lace-covered-button-beading-spring-wedding-dress.jpg" alt="Eddy K. 2018 CT203 Chapel Train Sleeveless V-Neck Mermaid Elegant Ivory Hall Lace Covered Button Beading Spring Wedding Dress 0" /></a>
+<a href="https://www.hectodress.com/eddy-k-/16385-eddy-k-2018-ct203-chapel-train-sleeveless-v-neck-mermaid-elegant-ivory-hall-lace-covered-button-beading-spring-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/51893-thickbox_default/eddy-k-2018-ct203-chapel-train-sleeveless-v-neck-mermaid-elegant-ivory-hall-lace-covered-button-beading-spring-wedding-dress.jpg" alt="Eddy K. 2018 CT203 Chapel Train Sleeveless V-Neck Mermaid Elegant Ivory Hall Lace Covered Button Beading Spring Wedding Dress 1" /></a>
+<a href="https://www.hectodress.com/eddy-k-/16385-eddy-k-2018-ct203-chapel-train-sleeveless-v-neck-mermaid-elegant-ivory-hall-lace-covered-button-beading-spring-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/51892-thickbox_default/eddy-k-2018-ct203-chapel-train-sleeveless-v-neck-mermaid-elegant-ivory-hall-lace-covered-button-beading-spring-wedding-dress.jpg" alt="Eddy K. 2018 CT203 Chapel Train Sleeveless V-Neck Mermaid Elegant Ivory Hall Lace Covered Button Beading Spring Wedding Dress 2" /></a>
+<a href="https://www.hectodress.com/eddy-k-/16385-eddy-k-2018-ct203-chapel-train-sleeveless-v-neck-mermaid-elegant-ivory-hall-lace-covered-button-beading-spring-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/51891-thickbox_default/eddy-k-2018-ct203-chapel-train-sleeveless-v-neck-mermaid-elegant-ivory-hall-lace-covered-button-beading-spring-wedding-dress.jpg" alt="Eddy K. 2018 CT203 Chapel Train Sleeveless V-Neck Mermaid Elegant Ivory Hall Lace Covered Button Beading Spring Wedding Dress 3" /></a>
+<a href="https://www.hectodress.com/eddy-k-/16385-eddy-k-2018-ct203-chapel-train-sleeveless-v-neck-mermaid-elegant-ivory-hall-lace-covered-button-beading-spring-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/51890-thickbox_default/eddy-k-2018-ct203-chapel-train-sleeveless-v-neck-mermaid-elegant-ivory-hall-lace-covered-button-beading-spring-wedding-dress.jpg" alt="Eddy K. 2018 CT203 Chapel Train Sleeveless V-Neck Mermaid Elegant Ivory Hall Lace Covered Button Beading Spring Wedding Dress 4" /></a>
+
+Buy it: [Eddy K. 2018 CT203 Chapel Train Sleeveless V-Neck Mermaid Elegant Ivory Hall Lace Covered Button Beading Spring Wedding Dress](https://www.hectodress.com/eddy-k-/16385-eddy-k-2018-ct203-chapel-train-sleeveless-v-neck-mermaid-elegant-ivory-hall-lace-covered-button-beading-spring-wedding-dress.html "Eddy K. 2018 CT203 Chapel Train Sleeveless V-Neck Mermaid Elegant Ivory Hall Lace Covered Button Beading Spring Wedding Dress")
+
+View more: [Eddy K.](https://www.hectodress.com/316-eddy-k- "Eddy K.")
