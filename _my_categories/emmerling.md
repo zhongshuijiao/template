@@ -1,0 +1,4 @@
+---
+slug: emmerling
+name: Emmerling
+---
