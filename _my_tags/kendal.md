@@ -1,0 +1,4 @@
+---
+slug: kendal
+name: kendal
+---
