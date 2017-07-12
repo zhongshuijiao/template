@@ -1,0 +1,4 @@
+---
+slug: fabulous
+name: fabulous
+---
