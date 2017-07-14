@@ -1,0 +1,4 @@
+---
+slug: chic
+name: chic
+---
