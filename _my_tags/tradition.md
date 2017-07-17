@@ -1,0 +1,4 @@
+---
+slug: tradition
+name: tradition
+---
