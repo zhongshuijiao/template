@@ -1,0 +1,4 @@
+---
+slug: farigola
+name: farigola
+---
