@@ -1,0 +1,4 @@
+---
+slug: stones
+name: stones
+---
