@@ -1,0 +1,4 @@
+---
+slug: bridel
+name: bridel
+---
