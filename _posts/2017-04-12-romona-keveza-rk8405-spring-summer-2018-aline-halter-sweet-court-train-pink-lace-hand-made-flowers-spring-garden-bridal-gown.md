@@ -1,0 +1,20 @@
+---
+layout: post
+date: '2017-04-12'
+title: "Romona Keveza rk8405 Spring/Summer 2018 Aline Halter Sweet Court Train Pink Lace Hand-made Flowers Spring Garden Bridal Gown"
+category: Romona Keveza
+tags: ["wedding","sweet","black","romona","little"]
+image: http://img.hectodress.com/51424-thickbox_default/romona-keveza-rk8405-spring-summer-2018-aline-halter-sweet-court-train-pink-lace-hand-made-flowers-spring-garden-bridal-gown.jpg
+---
+Romona Keveza rk8405 Spring/Summer 2018 Aline Halter Sweet Court Train Pink Lace Hand-made Flowers Spring Garden Bridal Gown
+
+On Sales: **$429.98**
+<a href="https://www.hectodress.com/romona-keveza/16264-romona-keveza-rk8405-spring-summer-2018-aline-halter-sweet-court-train-pink-lace-hand-made-flowers-spring-garden-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/51424-thickbox_default/romona-keveza-rk8405-spring-summer-2018-aline-halter-sweet-court-train-pink-lace-hand-made-flowers-spring-garden-bridal-gown.jpg" alt="Romona Keveza rk8405 Spring/Summer 2018 Aline Halter Sweet Court Train Pink Lace Hand-made Flowers Spring Garden Bridal Gown 0" /></a>
+<a href="https://www.hectodress.com/romona-keveza/16264-romona-keveza-rk8405-spring-summer-2018-aline-halter-sweet-court-train-pink-lace-hand-made-flowers-spring-garden-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/51428-thickbox_default/romona-keveza-rk8405-spring-summer-2018-aline-halter-sweet-court-train-pink-lace-hand-made-flowers-spring-garden-bridal-gown.jpg" alt="Romona Keveza rk8405 Spring/Summer 2018 Aline Halter Sweet Court Train Pink Lace Hand-made Flowers Spring Garden Bridal Gown 1" /></a>
+<a href="https://www.hectodress.com/romona-keveza/16264-romona-keveza-rk8405-spring-summer-2018-aline-halter-sweet-court-train-pink-lace-hand-made-flowers-spring-garden-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/51427-thickbox_default/romona-keveza-rk8405-spring-summer-2018-aline-halter-sweet-court-train-pink-lace-hand-made-flowers-spring-garden-bridal-gown.jpg" alt="Romona Keveza rk8405 Spring/Summer 2018 Aline Halter Sweet Court Train Pink Lace Hand-made Flowers Spring Garden Bridal Gown 2" /></a>
+<a href="https://www.hectodress.com/romona-keveza/16264-romona-keveza-rk8405-spring-summer-2018-aline-halter-sweet-court-train-pink-lace-hand-made-flowers-spring-garden-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/51426-thickbox_default/romona-keveza-rk8405-spring-summer-2018-aline-halter-sweet-court-train-pink-lace-hand-made-flowers-spring-garden-bridal-gown.jpg" alt="Romona Keveza rk8405 Spring/Summer 2018 Aline Halter Sweet Court Train Pink Lace Hand-made Flowers Spring Garden Bridal Gown 3" /></a>
+<a href="https://www.hectodress.com/romona-keveza/16264-romona-keveza-rk8405-spring-summer-2018-aline-halter-sweet-court-train-pink-lace-hand-made-flowers-spring-garden-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/51425-thickbox_default/romona-keveza-rk8405-spring-summer-2018-aline-halter-sweet-court-train-pink-lace-hand-made-flowers-spring-garden-bridal-gown.jpg" alt="Romona Keveza rk8405 Spring/Summer 2018 Aline Halter Sweet Court Train Pink Lace Hand-made Flowers Spring Garden Bridal Gown 4" /></a>
+
+Buy it: [Romona Keveza rk8405 Spring/Summer 2018 Aline Halter Sweet Court Train Pink Lace Hand-made Flowers Spring Garden Bridal Gown](https://www.hectodress.com/romona-keveza/16264-romona-keveza-rk8405-spring-summer-2018-aline-halter-sweet-court-train-pink-lace-hand-made-flowers-spring-garden-bridal-gown.html "Romona Keveza rk8405 Spring/Summer 2018 Aline Halter Sweet Court Train Pink Lace Hand-made Flowers Spring Garden Bridal Gown")
+
+View more: [Romona Keveza](https://www.hectodress.com/309-romona-keveza "Romona Keveza")
