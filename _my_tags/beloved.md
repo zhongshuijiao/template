@@ -1,0 +1,4 @@
+---
+slug: beloved
+name: beloved
+---
