@@ -1,0 +1,4 @@
+---
+slug: detachable
+name: detachable
+---
