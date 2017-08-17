@@ -1,0 +1,4 @@
+---
+slug: fuego
+name: fuego
+---
