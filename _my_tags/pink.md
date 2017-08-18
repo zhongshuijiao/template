@@ -1,0 +1,4 @@
+---
+slug: pink
+name: pink
+---
