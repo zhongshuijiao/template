@@ -1,0 +1,4 @@
+---
+slug: amata
+name: amata
+---
