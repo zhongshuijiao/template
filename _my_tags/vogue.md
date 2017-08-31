@@ -1,0 +1,4 @@
+---
+slug: vogue
+name: vogue
+---
