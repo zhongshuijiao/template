@@ -1,0 +1,4 @@
+---
+slug: trudy
+name: trudy
+---
