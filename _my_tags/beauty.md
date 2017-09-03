@@ -1,0 +1,4 @@
+---
+slug: beauty
+name: beauty
+---
