@@ -1,0 +1,4 @@
+---
+slug: georgia
+name: georgia
+---
