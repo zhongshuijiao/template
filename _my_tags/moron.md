@@ -1,0 +1,4 @@
+---
+slug: moron
+name: moron
+---
