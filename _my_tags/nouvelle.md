@@ -1,0 +1,4 @@
+---
+slug: nouvelle
+name: nouvelle
+---
