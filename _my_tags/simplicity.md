@@ -1,0 +1,4 @@
+---
+slug: simplicity
+name: simplicity
+---
