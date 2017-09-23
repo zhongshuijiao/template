@@ -3,7 +3,7 @@ layout: post
 date: '2017-05-31'
 title: "Eve of Milady Spring/Summer 2017 4358 Detachable Open Back Ivory Sheath Sleeveless Sweetheart Lace Beading Dress For Bride"
 category: Eve of Milady
-tags: ["ivory","sleeveless","black","sheath","milady"]
+tags: ["sleeveless","bridesmaid","open","black","ivory"]
 image: http://img.hectodress.com/54037-thickbox_default/eve-of-milady-spring-summer-2017-4358-detachable-open-back-ivory-sheath-sleeveless-sweetheart-lace-beading-dress-for-bride.jpg
 ---
 Eve of Milady Spring/Summer 2017 4358 Detachable Open Back Ivory Sheath Sleeveless Sweetheart Lace Beading Dress For Bride
