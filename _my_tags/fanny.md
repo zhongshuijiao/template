@@ -1,0 +1,4 @@
+---
+slug: fanny
+name: fanny
+---
