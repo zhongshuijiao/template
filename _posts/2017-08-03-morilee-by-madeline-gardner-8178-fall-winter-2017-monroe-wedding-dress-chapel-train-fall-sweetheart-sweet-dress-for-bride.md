@@ -3,7 +3,7 @@ layout: post
 date: '2017-08-03'
 title: "Morilee by Madeline Gardner 8178 Fall/Winter 2017 Monroe Wedding Dress Chapel Train Fall Sweetheart Sweet Dress For Bride"
 category: Mori Lee
-tags: ["bride","wedding","black","sweet","unique"]
+tags: ["gardner","dress","madeline","bride","morilee"]
 image: http://img.hectodress.com/50212-thickbox_default/morilee-by-madeline-gardner-8178-fall-winter-2017-monroe-wedding-dress-chapel-train-fall-sweetheart-sweet-dress-for-bride.jpg
 ---
 Morilee by Madeline Gardner 8178 Fall/Winter 2017 Monroe Wedding Dress Chapel Train Fall Sweetheart Sweet Dress For Bride
