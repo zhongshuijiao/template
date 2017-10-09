@@ -1,0 +1,4 @@
+---
+slug: rihanna
+name: rihanna
+---
