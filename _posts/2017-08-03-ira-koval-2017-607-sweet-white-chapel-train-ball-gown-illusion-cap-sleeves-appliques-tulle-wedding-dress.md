@@ -1,0 +1,22 @@
+---
+layout: post
+date: '2017-08-03'
+title: "Ira Koval 2017 607 Sweet White Chapel Train Ball Gown Illusion Cap Sleeves Appliques Tulle Wedding Dress"
+category: Ira Koval
+tags: ["dresses","wedding","sweet","tulle","train"]
+image: http://img.hectodress.com/58184-thickbox_default/ira-koval-2017-607-sweet-white-chapel-train-ball-gown-illusion-cap-sleeves-appliques-tulle-wedding-dress.jpg
+---
+Ira Koval 2017 607 Sweet White Chapel Train Ball Gown Illusion Cap Sleeves Appliques Tulle Wedding Dress
+
+On Sales: **$368.98**
+<a href="https://www.hectodress.com/ira-koval/18157-ira-koval-2017-607-sweet-white-chapel-train-ball-gown-illusion-cap-sleeves-appliques-tulle-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/58184-thickbox_default/ira-koval-2017-607-sweet-white-chapel-train-ball-gown-illusion-cap-sleeves-appliques-tulle-wedding-dress.jpg" alt="Ira Koval 2017 607 Sweet White Chapel Train Ball Gown Illusion Cap Sleeves Appliques Tulle Wedding Dress 0" /></a>
+<a href="https://www.hectodress.com/ira-koval/18157-ira-koval-2017-607-sweet-white-chapel-train-ball-gown-illusion-cap-sleeves-appliques-tulle-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/58190-thickbox_default/ira-koval-2017-607-sweet-white-chapel-train-ball-gown-illusion-cap-sleeves-appliques-tulle-wedding-dress.jpg" alt="Ira Koval 2017 607 Sweet White Chapel Train Ball Gown Illusion Cap Sleeves Appliques Tulle Wedding Dress 1" /></a>
+<a href="https://www.hectodress.com/ira-koval/18157-ira-koval-2017-607-sweet-white-chapel-train-ball-gown-illusion-cap-sleeves-appliques-tulle-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/58189-thickbox_default/ira-koval-2017-607-sweet-white-chapel-train-ball-gown-illusion-cap-sleeves-appliques-tulle-wedding-dress.jpg" alt="Ira Koval 2017 607 Sweet White Chapel Train Ball Gown Illusion Cap Sleeves Appliques Tulle Wedding Dress 2" /></a>
+<a href="https://www.hectodress.com/ira-koval/18157-ira-koval-2017-607-sweet-white-chapel-train-ball-gown-illusion-cap-sleeves-appliques-tulle-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/58188-thickbox_default/ira-koval-2017-607-sweet-white-chapel-train-ball-gown-illusion-cap-sleeves-appliques-tulle-wedding-dress.jpg" alt="Ira Koval 2017 607 Sweet White Chapel Train Ball Gown Illusion Cap Sleeves Appliques Tulle Wedding Dress 3" /></a>
+<a href="https://www.hectodress.com/ira-koval/18157-ira-koval-2017-607-sweet-white-chapel-train-ball-gown-illusion-cap-sleeves-appliques-tulle-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/58187-thickbox_default/ira-koval-2017-607-sweet-white-chapel-train-ball-gown-illusion-cap-sleeves-appliques-tulle-wedding-dress.jpg" alt="Ira Koval 2017 607 Sweet White Chapel Train Ball Gown Illusion Cap Sleeves Appliques Tulle Wedding Dress 4" /></a>
+<a href="https://www.hectodress.com/ira-koval/18157-ira-koval-2017-607-sweet-white-chapel-train-ball-gown-illusion-cap-sleeves-appliques-tulle-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/58186-thickbox_default/ira-koval-2017-607-sweet-white-chapel-train-ball-gown-illusion-cap-sleeves-appliques-tulle-wedding-dress.jpg" alt="Ira Koval 2017 607 Sweet White Chapel Train Ball Gown Illusion Cap Sleeves Appliques Tulle Wedding Dress 5" /></a>
+<a href="https://www.hectodress.com/ira-koval/18157-ira-koval-2017-607-sweet-white-chapel-train-ball-gown-illusion-cap-sleeves-appliques-tulle-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/58185-thickbox_default/ira-koval-2017-607-sweet-white-chapel-train-ball-gown-illusion-cap-sleeves-appliques-tulle-wedding-dress.jpg" alt="Ira Koval 2017 607 Sweet White Chapel Train Ball Gown Illusion Cap Sleeves Appliques Tulle Wedding Dress 6" /></a>
+
+Buy it: [Ira Koval 2017 607 Sweet White Chapel Train Ball Gown Illusion Cap Sleeves Appliques Tulle Wedding Dress](https://www.hectodress.com/ira-koval/18157-ira-koval-2017-607-sweet-white-chapel-train-ball-gown-illusion-cap-sleeves-appliques-tulle-wedding-dress.html "Ira Koval 2017 607 Sweet White Chapel Train Ball Gown Illusion Cap Sleeves Appliques Tulle Wedding Dress")
+
+View more: [Ira Koval](https://www.hectodress.com/77-ira-koval "Ira Koval")
