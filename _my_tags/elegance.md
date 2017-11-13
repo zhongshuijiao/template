@@ -1,0 +1,4 @@
+---
+slug: elegance
+name: elegance
+---
