@@ -1,0 +1,21 @@
+---
+layout: post
+date: '2017-10-25'
+title: "Mikaella Spring/Summer 2017 2105 Chapel Train Sheath Long Sleeves Bateau Simple Ivory with Sash Satin Bridal Dress"
+category: Mikaella
+tags: ["satin","chapel","black","simple","long"]
+image: http://img.hectodress.com/58541-thickbox_default/mikaella-spring-summer-2017-2105-chapel-train-sheath-long-sleeves-bateau-simple-ivory-with-sash-satin-bridal-dress.jpg
+---
+Mikaella Spring/Summer 2017 2105 Chapel Train Sheath Long Sleeves Bateau Simple Ivory with Sash Satin Bridal Dress
+
+On Sales: **$318.98**
+<a href="https://www.hectodress.com/mikaella/18297-mikaella-spring-summer-2017-2105-chapel-train-sheath-long-sleeves-bateau-simple-ivory-with-sash-satin-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/58541-thickbox_default/mikaella-spring-summer-2017-2105-chapel-train-sheath-long-sleeves-bateau-simple-ivory-with-sash-satin-bridal-dress.jpg" alt="Mikaella Spring/Summer 2017 2105 Chapel Train Sheath Long Sleeves Bateau Simple Ivory with Sash Satin Bridal Dress 0" /></a>
+<a href="https://www.hectodress.com/mikaella/18297-mikaella-spring-summer-2017-2105-chapel-train-sheath-long-sleeves-bateau-simple-ivory-with-sash-satin-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/58546-thickbox_default/mikaella-spring-summer-2017-2105-chapel-train-sheath-long-sleeves-bateau-simple-ivory-with-sash-satin-bridal-dress.jpg" alt="Mikaella Spring/Summer 2017 2105 Chapel Train Sheath Long Sleeves Bateau Simple Ivory with Sash Satin Bridal Dress 1" /></a>
+<a href="https://www.hectodress.com/mikaella/18297-mikaella-spring-summer-2017-2105-chapel-train-sheath-long-sleeves-bateau-simple-ivory-with-sash-satin-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/58545-thickbox_default/mikaella-spring-summer-2017-2105-chapel-train-sheath-long-sleeves-bateau-simple-ivory-with-sash-satin-bridal-dress.jpg" alt="Mikaella Spring/Summer 2017 2105 Chapel Train Sheath Long Sleeves Bateau Simple Ivory with Sash Satin Bridal Dress 2" /></a>
+<a href="https://www.hectodress.com/mikaella/18297-mikaella-spring-summer-2017-2105-chapel-train-sheath-long-sleeves-bateau-simple-ivory-with-sash-satin-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/58544-thickbox_default/mikaella-spring-summer-2017-2105-chapel-train-sheath-long-sleeves-bateau-simple-ivory-with-sash-satin-bridal-dress.jpg" alt="Mikaella Spring/Summer 2017 2105 Chapel Train Sheath Long Sleeves Bateau Simple Ivory with Sash Satin Bridal Dress 3" /></a>
+<a href="https://www.hectodress.com/mikaella/18297-mikaella-spring-summer-2017-2105-chapel-train-sheath-long-sleeves-bateau-simple-ivory-with-sash-satin-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/58543-thickbox_default/mikaella-spring-summer-2017-2105-chapel-train-sheath-long-sleeves-bateau-simple-ivory-with-sash-satin-bridal-dress.jpg" alt="Mikaella Spring/Summer 2017 2105 Chapel Train Sheath Long Sleeves Bateau Simple Ivory with Sash Satin Bridal Dress 4" /></a>
+<a href="https://www.hectodress.com/mikaella/18297-mikaella-spring-summer-2017-2105-chapel-train-sheath-long-sleeves-bateau-simple-ivory-with-sash-satin-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/58542-thickbox_default/mikaella-spring-summer-2017-2105-chapel-train-sheath-long-sleeves-bateau-simple-ivory-with-sash-satin-bridal-dress.jpg" alt="Mikaella Spring/Summer 2017 2105 Chapel Train Sheath Long Sleeves Bateau Simple Ivory with Sash Satin Bridal Dress 5" /></a>
+
+Buy it: [Mikaella Spring/Summer 2017 2105 Chapel Train Sheath Long Sleeves Bateau Simple Ivory with Sash Satin Bridal Dress](https://www.hectodress.com/mikaella/18297-mikaella-spring-summer-2017-2105-chapel-train-sheath-long-sleeves-bateau-simple-ivory-with-sash-satin-bridal-dress.html "Mikaella Spring/Summer 2017 2105 Chapel Train Sheath Long Sleeves Bateau Simple Ivory with Sash Satin Bridal Dress")
+
+View more: [Mikaella](https://www.hectodress.com/325-mikaella "Mikaella")
