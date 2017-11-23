@@ -1,0 +1,4 @@
+---
+slug: vanille
+name: vanille
+---
