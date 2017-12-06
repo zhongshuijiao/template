@@ -1,0 +1,21 @@
+---
+layout: post
+date: '2017-08-25'
+title: "Berta Fall/Winter 2018 Style 18-119 Chapel Train Lace Open Back Fit & Flare Ivory V-Neck Beading Cap Sleeves Bridal Gown"
+category: Berta
+tags: ["style","flare","chapel","lace","train"]
+image: http://img.hectodress.com/62027-thickbox_default/berta-fall-winter-2018-style-18-119-chapel-train-lace-open-back-fit-flare-ivory-v-neck-beading-cap-sleeves-bridal-gown.jpg
+---
+Berta Fall/Winter 2018 Style 18-119 Chapel Train Lace Open Back Fit & Flare Ivory V-Neck Beading Cap Sleeves Bridal Gown
+
+On Sales: **$568.98**
+<a href="https://www.hectodress.com/berta/20009-berta-fall-winter-2018-style-18-119-chapel-train-lace-open-back-fit-flare-ivory-v-neck-beading-cap-sleeves-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/62027-thickbox_default/berta-fall-winter-2018-style-18-119-chapel-train-lace-open-back-fit-flare-ivory-v-neck-beading-cap-sleeves-bridal-gown.jpg" alt="Berta Fall/Winter 2018 Style 18-119 Chapel Train Lace Open Back Fit & Flare Ivory V-Neck Beading Cap Sleeves Bridal Gown 0" /></a>
+<a href="https://www.hectodress.com/berta/20009-berta-fall-winter-2018-style-18-119-chapel-train-lace-open-back-fit-flare-ivory-v-neck-beading-cap-sleeves-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/62032-thickbox_default/berta-fall-winter-2018-style-18-119-chapel-train-lace-open-back-fit-flare-ivory-v-neck-beading-cap-sleeves-bridal-gown.jpg" alt="Berta Fall/Winter 2018 Style 18-119 Chapel Train Lace Open Back Fit & Flare Ivory V-Neck Beading Cap Sleeves Bridal Gown 1" /></a>
+<a href="https://www.hectodress.com/berta/20009-berta-fall-winter-2018-style-18-119-chapel-train-lace-open-back-fit-flare-ivory-v-neck-beading-cap-sleeves-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/62031-thickbox_default/berta-fall-winter-2018-style-18-119-chapel-train-lace-open-back-fit-flare-ivory-v-neck-beading-cap-sleeves-bridal-gown.jpg" alt="Berta Fall/Winter 2018 Style 18-119 Chapel Train Lace Open Back Fit & Flare Ivory V-Neck Beading Cap Sleeves Bridal Gown 2" /></a>
+<a href="https://www.hectodress.com/berta/20009-berta-fall-winter-2018-style-18-119-chapel-train-lace-open-back-fit-flare-ivory-v-neck-beading-cap-sleeves-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/62030-thickbox_default/berta-fall-winter-2018-style-18-119-chapel-train-lace-open-back-fit-flare-ivory-v-neck-beading-cap-sleeves-bridal-gown.jpg" alt="Berta Fall/Winter 2018 Style 18-119 Chapel Train Lace Open Back Fit & Flare Ivory V-Neck Beading Cap Sleeves Bridal Gown 3" /></a>
+<a href="https://www.hectodress.com/berta/20009-berta-fall-winter-2018-style-18-119-chapel-train-lace-open-back-fit-flare-ivory-v-neck-beading-cap-sleeves-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/62029-thickbox_default/berta-fall-winter-2018-style-18-119-chapel-train-lace-open-back-fit-flare-ivory-v-neck-beading-cap-sleeves-bridal-gown.jpg" alt="Berta Fall/Winter 2018 Style 18-119 Chapel Train Lace Open Back Fit & Flare Ivory V-Neck Beading Cap Sleeves Bridal Gown 4" /></a>
+<a href="https://www.hectodress.com/berta/20009-berta-fall-winter-2018-style-18-119-chapel-train-lace-open-back-fit-flare-ivory-v-neck-beading-cap-sleeves-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/62028-thickbox_default/berta-fall-winter-2018-style-18-119-chapel-train-lace-open-back-fit-flare-ivory-v-neck-beading-cap-sleeves-bridal-gown.jpg" alt="Berta Fall/Winter 2018 Style 18-119 Chapel Train Lace Open Back Fit & Flare Ivory V-Neck Beading Cap Sleeves Bridal Gown 5" /></a>
+
+Buy it: [Berta Fall/Winter 2018 Style 18-119 Chapel Train Lace Open Back Fit & Flare Ivory V-Neck Beading Cap Sleeves Bridal Gown](https://www.hectodress.com/berta/20009-berta-fall-winter-2018-style-18-119-chapel-train-lace-open-back-fit-flare-ivory-v-neck-beading-cap-sleeves-bridal-gown.html "Berta Fall/Winter 2018 Style 18-119 Chapel Train Lace Open Back Fit & Flare Ivory V-Neck Beading Cap Sleeves Bridal Gown")
+
+View more: [Berta](https://www.hectodress.com/318-berta "Berta")
