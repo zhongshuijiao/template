@@ -1,0 +1,4 @@
+---
+slug: vendi
+name: vendi
+---
