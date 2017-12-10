@@ -1,0 +1,4 @@
+---
+slug: mural
+name: mural
+---
