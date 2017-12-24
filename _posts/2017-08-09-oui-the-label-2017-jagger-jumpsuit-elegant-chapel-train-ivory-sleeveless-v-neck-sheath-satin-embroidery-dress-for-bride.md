@@ -3,7 +3,7 @@ layout: post
 date: '2017-08-09'
 title: "Oui the Label 2017 Jagger Jumpsuit Elegant Chapel Train Ivory Sleeveless V-Neck Sheath Satin Embroidery Dress For Bride"
 category: Oui the Label
-tags: ["rosy","dresses","ivory","little","wedding"]
+tags: ["unique","rosy","neck","bridesmaid","train"]
 image: http://img.hectodress.com/54760-thickbox_default/oui-the-label-2017-jagger-jumpsuit-elegant-chapel-train-ivory-sleeveless-v-neck-sheath-satin-embroidery-dress-for-bride.jpg
 ---
 Oui the Label 2017 Jagger Jumpsuit Elegant Chapel Train Ivory Sleeveless V-Neck Sheath Satin Embroidery Dress For Bride
