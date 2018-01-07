@@ -1,0 +1,20 @@
+---
+layout: post
+date: '2017-08-17'
+title: "David Tutera for Mon Cheri Spring/Summer 2017 117286 Citrine Embroidery Royal Train Tulle Champagne Mermaid Bateau Wedding Dress"
+category: David Tutera for Mon Cheri
+tags: ["citrine","rosy","tulle","unique","champagne"]
+image: http://img.hectodress.com/63775-thickbox_default/david-tutera-for-mon-cheri-spring-summer-2017-117286-citrine-embroidery-royal-train-tulle-champagne-mermaid-bateau-wedding-dress.jpg
+---
+David Tutera for Mon Cheri Spring/Summer 2017 117286 Citrine Embroidery Royal Train Tulle Champagne Mermaid Bateau Wedding Dress
+
+On Sales: **$488.98**
+<a href="https://www.hectodress.com/david-tutera-for-mon-cheri/20654-david-tutera-for-mon-cheri-spring-summer-2017-117286-citrine-embroidery-royal-train-tulle-champagne-mermaid-bateau-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/63775-thickbox_default/david-tutera-for-mon-cheri-spring-summer-2017-117286-citrine-embroidery-royal-train-tulle-champagne-mermaid-bateau-wedding-dress.jpg" alt="David Tutera for Mon Cheri Spring/Summer 2017 117286 Citrine Embroidery Royal Train Tulle Champagne Mermaid Bateau Wedding Dress 0" /></a>
+<a href="https://www.hectodress.com/david-tutera-for-mon-cheri/20654-david-tutera-for-mon-cheri-spring-summer-2017-117286-citrine-embroidery-royal-train-tulle-champagne-mermaid-bateau-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/63779-thickbox_default/david-tutera-for-mon-cheri-spring-summer-2017-117286-citrine-embroidery-royal-train-tulle-champagne-mermaid-bateau-wedding-dress.jpg" alt="David Tutera for Mon Cheri Spring/Summer 2017 117286 Citrine Embroidery Royal Train Tulle Champagne Mermaid Bateau Wedding Dress 1" /></a>
+<a href="https://www.hectodress.com/david-tutera-for-mon-cheri/20654-david-tutera-for-mon-cheri-spring-summer-2017-117286-citrine-embroidery-royal-train-tulle-champagne-mermaid-bateau-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/63778-thickbox_default/david-tutera-for-mon-cheri-spring-summer-2017-117286-citrine-embroidery-royal-train-tulle-champagne-mermaid-bateau-wedding-dress.jpg" alt="David Tutera for Mon Cheri Spring/Summer 2017 117286 Citrine Embroidery Royal Train Tulle Champagne Mermaid Bateau Wedding Dress 2" /></a>
+<a href="https://www.hectodress.com/david-tutera-for-mon-cheri/20654-david-tutera-for-mon-cheri-spring-summer-2017-117286-citrine-embroidery-royal-train-tulle-champagne-mermaid-bateau-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/63777-thickbox_default/david-tutera-for-mon-cheri-spring-summer-2017-117286-citrine-embroidery-royal-train-tulle-champagne-mermaid-bateau-wedding-dress.jpg" alt="David Tutera for Mon Cheri Spring/Summer 2017 117286 Citrine Embroidery Royal Train Tulle Champagne Mermaid Bateau Wedding Dress 3" /></a>
+<a href="https://www.hectodress.com/david-tutera-for-mon-cheri/20654-david-tutera-for-mon-cheri-spring-summer-2017-117286-citrine-embroidery-royal-train-tulle-champagne-mermaid-bateau-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/63776-thickbox_default/david-tutera-for-mon-cheri-spring-summer-2017-117286-citrine-embroidery-royal-train-tulle-champagne-mermaid-bateau-wedding-dress.jpg" alt="David Tutera for Mon Cheri Spring/Summer 2017 117286 Citrine Embroidery Royal Train Tulle Champagne Mermaid Bateau Wedding Dress 4" /></a>
+
+Buy it: [David Tutera for Mon Cheri Spring/Summer 2017 117286 Citrine Embroidery Royal Train Tulle Champagne Mermaid Bateau Wedding Dress](https://www.hectodress.com/david-tutera-for-mon-cheri/20654-david-tutera-for-mon-cheri-spring-summer-2017-117286-citrine-embroidery-royal-train-tulle-champagne-mermaid-bateau-wedding-dress.html "David Tutera for Mon Cheri Spring/Summer 2017 117286 Citrine Embroidery Royal Train Tulle Champagne Mermaid Bateau Wedding Dress")
+
+View more: [David Tutera for Mon Cheri](https://www.hectodress.com/376-david-tutera-for-mon-cheri "David Tutera for Mon Cheri")
