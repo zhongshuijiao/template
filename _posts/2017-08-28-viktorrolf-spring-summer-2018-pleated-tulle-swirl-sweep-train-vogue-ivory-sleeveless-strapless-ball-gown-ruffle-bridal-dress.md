@@ -1,0 +1,20 @@
+---
+layout: post
+date: '2017-08-28'
+title: "Viktor&Rolf Spring/Summer 2018 Pleated Tulle Swirl Sweep Train Vogue Ivory Sleeveless Strapless Ball Gown Ruffle Bridal Dress"
+category: Viktoria Karandasheva
+tags: ["bridal","dresses","dress","tulle","spring"]
+image: http://img.hectodress.com/52826-thickbox_default/viktor-rolf-spring-summer-2018-pleated-tulle-swirl-sweep-train-vogue-ivory-sleeveless-strapless-ball-gown-ruffle-bridal-dress.jpg
+---
+Viktor&Rolf Spring/Summer 2018 Pleated Tulle Swirl Sweep Train Vogue Ivory Sleeveless Strapless Ball Gown Ruffle Bridal Dress
+
+On Sales: **$388.98**
+<a href="https://www.hectodress.com/viktoria-karandasheva/16620-viktor-rolf-spring-summer-2018-pleated-tulle-swirl-sweep-train-vogue-ivory-sleeveless-strapless-ball-gown-ruffle-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/52826-thickbox_default/viktor-rolf-spring-summer-2018-pleated-tulle-swirl-sweep-train-vogue-ivory-sleeveless-strapless-ball-gown-ruffle-bridal-dress.jpg" alt="Viktor&Rolf Spring/Summer 2018 Pleated Tulle Swirl Sweep Train Vogue Ivory Sleeveless Strapless Ball Gown Ruffle Bridal Dress 0" /></a>
+<a href="https://www.hectodress.com/viktoria-karandasheva/16620-viktor-rolf-spring-summer-2018-pleated-tulle-swirl-sweep-train-vogue-ivory-sleeveless-strapless-ball-gown-ruffle-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/52830-thickbox_default/viktor-rolf-spring-summer-2018-pleated-tulle-swirl-sweep-train-vogue-ivory-sleeveless-strapless-ball-gown-ruffle-bridal-dress.jpg" alt="Viktor&Rolf Spring/Summer 2018 Pleated Tulle Swirl Sweep Train Vogue Ivory Sleeveless Strapless Ball Gown Ruffle Bridal Dress 1" /></a>
+<a href="https://www.hectodress.com/viktoria-karandasheva/16620-viktor-rolf-spring-summer-2018-pleated-tulle-swirl-sweep-train-vogue-ivory-sleeveless-strapless-ball-gown-ruffle-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/52829-thickbox_default/viktor-rolf-spring-summer-2018-pleated-tulle-swirl-sweep-train-vogue-ivory-sleeveless-strapless-ball-gown-ruffle-bridal-dress.jpg" alt="Viktor&Rolf Spring/Summer 2018 Pleated Tulle Swirl Sweep Train Vogue Ivory Sleeveless Strapless Ball Gown Ruffle Bridal Dress 2" /></a>
+<a href="https://www.hectodress.com/viktoria-karandasheva/16620-viktor-rolf-spring-summer-2018-pleated-tulle-swirl-sweep-train-vogue-ivory-sleeveless-strapless-ball-gown-ruffle-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/52828-thickbox_default/viktor-rolf-spring-summer-2018-pleated-tulle-swirl-sweep-train-vogue-ivory-sleeveless-strapless-ball-gown-ruffle-bridal-dress.jpg" alt="Viktor&Rolf Spring/Summer 2018 Pleated Tulle Swirl Sweep Train Vogue Ivory Sleeveless Strapless Ball Gown Ruffle Bridal Dress 3" /></a>
+<a href="https://www.hectodress.com/viktoria-karandasheva/16620-viktor-rolf-spring-summer-2018-pleated-tulle-swirl-sweep-train-vogue-ivory-sleeveless-strapless-ball-gown-ruffle-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/52827-thickbox_default/viktor-rolf-spring-summer-2018-pleated-tulle-swirl-sweep-train-vogue-ivory-sleeveless-strapless-ball-gown-ruffle-bridal-dress.jpg" alt="Viktor&Rolf Spring/Summer 2018 Pleated Tulle Swirl Sweep Train Vogue Ivory Sleeveless Strapless Ball Gown Ruffle Bridal Dress 4" /></a>
+
+Buy it: [Viktor&Rolf Spring/Summer 2018 Pleated Tulle Swirl Sweep Train Vogue Ivory Sleeveless Strapless Ball Gown Ruffle Bridal Dress](https://www.hectodress.com/viktoria-karandasheva/16620-viktor-rolf-spring-summer-2018-pleated-tulle-swirl-sweep-train-vogue-ivory-sleeveless-strapless-ball-gown-ruffle-bridal-dress.html "Viktor&Rolf Spring/Summer 2018 Pleated Tulle Swirl Sweep Train Vogue Ivory Sleeveless Strapless Ball Gown Ruffle Bridal Dress")
+
+View more: [Viktoria Karandasheva](https://www.hectodress.com/174-viktoria-karandasheva "Viktoria Karandasheva")
