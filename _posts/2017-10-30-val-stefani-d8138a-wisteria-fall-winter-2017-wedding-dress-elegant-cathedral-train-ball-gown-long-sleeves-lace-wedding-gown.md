@@ -1,0 +1,20 @@
+---
+layout: post
+date: '2017-10-30'
+title: "Val Stefani D8138A WISTERIA Fall/Winter 2017 Wedding Dress Elegant Cathedral Train Ball Gown Long Sleeves Lace Wedding Gown"
+category: Val Stefani
+tags: ["dress","sleeves","gown","wedding","wisteria"]
+image: http://img.hectodress.com/50615-thickbox_default/val-stefani-d8138a-wisteria-fall-winter-2017-wedding-dress-elegant-cathedral-train-ball-gown-long-sleeves-lace-wedding-gown.jpg
+---
+Val Stefani D8138A WISTERIA Fall/Winter 2017 Wedding Dress Elegant Cathedral Train Ball Gown Long Sleeves Lace Wedding Gown
+
+On Sales: **$389.98**
+<a href="https://www.hectodress.com/val-stefani/16041-val-stefani-d8138a-wisteria-fall-winter-2017-wedding-dress-elegant-cathedral-train-ball-gown-long-sleeves-lace-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/50615-thickbox_default/val-stefani-d8138a-wisteria-fall-winter-2017-wedding-dress-elegant-cathedral-train-ball-gown-long-sleeves-lace-wedding-gown.jpg" alt="Val Stefani D8138A WISTERIA Fall/Winter 2017 Wedding Dress Elegant Cathedral Train Ball Gown Long Sleeves Lace Wedding Gown 0" /></a>
+<a href="https://www.hectodress.com/val-stefani/16041-val-stefani-d8138a-wisteria-fall-winter-2017-wedding-dress-elegant-cathedral-train-ball-gown-long-sleeves-lace-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/50619-thickbox_default/val-stefani-d8138a-wisteria-fall-winter-2017-wedding-dress-elegant-cathedral-train-ball-gown-long-sleeves-lace-wedding-gown.jpg" alt="Val Stefani D8138A WISTERIA Fall/Winter 2017 Wedding Dress Elegant Cathedral Train Ball Gown Long Sleeves Lace Wedding Gown 1" /></a>
+<a href="https://www.hectodress.com/val-stefani/16041-val-stefani-d8138a-wisteria-fall-winter-2017-wedding-dress-elegant-cathedral-train-ball-gown-long-sleeves-lace-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/50618-thickbox_default/val-stefani-d8138a-wisteria-fall-winter-2017-wedding-dress-elegant-cathedral-train-ball-gown-long-sleeves-lace-wedding-gown.jpg" alt="Val Stefani D8138A WISTERIA Fall/Winter 2017 Wedding Dress Elegant Cathedral Train Ball Gown Long Sleeves Lace Wedding Gown 2" /></a>
+<a href="https://www.hectodress.com/val-stefani/16041-val-stefani-d8138a-wisteria-fall-winter-2017-wedding-dress-elegant-cathedral-train-ball-gown-long-sleeves-lace-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/50617-thickbox_default/val-stefani-d8138a-wisteria-fall-winter-2017-wedding-dress-elegant-cathedral-train-ball-gown-long-sleeves-lace-wedding-gown.jpg" alt="Val Stefani D8138A WISTERIA Fall/Winter 2017 Wedding Dress Elegant Cathedral Train Ball Gown Long Sleeves Lace Wedding Gown 3" /></a>
+<a href="https://www.hectodress.com/val-stefani/16041-val-stefani-d8138a-wisteria-fall-winter-2017-wedding-dress-elegant-cathedral-train-ball-gown-long-sleeves-lace-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/50616-thickbox_default/val-stefani-d8138a-wisteria-fall-winter-2017-wedding-dress-elegant-cathedral-train-ball-gown-long-sleeves-lace-wedding-gown.jpg" alt="Val Stefani D8138A WISTERIA Fall/Winter 2017 Wedding Dress Elegant Cathedral Train Ball Gown Long Sleeves Lace Wedding Gown 4" /></a>
+
+Buy it: [Val Stefani D8138A WISTERIA Fall/Winter 2017 Wedding Dress Elegant Cathedral Train Ball Gown Long Sleeves Lace Wedding Gown](https://www.hectodress.com/val-stefani/16041-val-stefani-d8138a-wisteria-fall-winter-2017-wedding-dress-elegant-cathedral-train-ball-gown-long-sleeves-lace-wedding-gown.html "Val Stefani D8138A WISTERIA Fall/Winter 2017 Wedding Dress Elegant Cathedral Train Ball Gown Long Sleeves Lace Wedding Gown")
+
+View more: [Val Stefani](https://www.hectodress.com/308-val-stefani "Val Stefani")
