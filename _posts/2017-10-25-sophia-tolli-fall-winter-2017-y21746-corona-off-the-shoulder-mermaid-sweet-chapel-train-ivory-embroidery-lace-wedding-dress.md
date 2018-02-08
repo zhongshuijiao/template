@@ -1,0 +1,20 @@
+---
+layout: post
+date: '2017-10-25'
+title: "Sophia Tolli Fall/Winter 2017 Y21746 Corona Off-the-shoulder Mermaid Sweet Chapel Train Ivory Embroidery Lace Wedding Dress"
+category: Sophia Tolli Bridal
+tags: ["corona","winter","bridesmaid","sophia","little"]
+image: http://img.hectodress.com/56720-thickbox_default/sophia-tolli-fall-winter-2017-y21746-corona-off-the-shoulder-mermaid-sweet-chapel-train-ivory-embroidery-lace-wedding-dress.jpg
+---
+Sophia Tolli Fall/Winter 2017 Y21746 Corona Off-the-shoulder Mermaid Sweet Chapel Train Ivory Embroidery Lace Wedding Dress
+
+On Sales: **$398.98**
+<a href="https://www.hectodress.com/sophia-tolli-bridal/17644-sophia-tolli-fall-winter-2017-y21746-corona-off-the-shoulder-mermaid-sweet-chapel-train-ivory-embroidery-lace-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/56720-thickbox_default/sophia-tolli-fall-winter-2017-y21746-corona-off-the-shoulder-mermaid-sweet-chapel-train-ivory-embroidery-lace-wedding-dress.jpg" alt="Sophia Tolli Fall/Winter 2017 Y21746 Corona Off-the-shoulder Mermaid Sweet Chapel Train Ivory Embroidery Lace Wedding Dress 0" /></a>
+<a href="https://www.hectodress.com/sophia-tolli-bridal/17644-sophia-tolli-fall-winter-2017-y21746-corona-off-the-shoulder-mermaid-sweet-chapel-train-ivory-embroidery-lace-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/56724-thickbox_default/sophia-tolli-fall-winter-2017-y21746-corona-off-the-shoulder-mermaid-sweet-chapel-train-ivory-embroidery-lace-wedding-dress.jpg" alt="Sophia Tolli Fall/Winter 2017 Y21746 Corona Off-the-shoulder Mermaid Sweet Chapel Train Ivory Embroidery Lace Wedding Dress 1" /></a>
+<a href="https://www.hectodress.com/sophia-tolli-bridal/17644-sophia-tolli-fall-winter-2017-y21746-corona-off-the-shoulder-mermaid-sweet-chapel-train-ivory-embroidery-lace-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/56723-thickbox_default/sophia-tolli-fall-winter-2017-y21746-corona-off-the-shoulder-mermaid-sweet-chapel-train-ivory-embroidery-lace-wedding-dress.jpg" alt="Sophia Tolli Fall/Winter 2017 Y21746 Corona Off-the-shoulder Mermaid Sweet Chapel Train Ivory Embroidery Lace Wedding Dress 2" /></a>
+<a href="https://www.hectodress.com/sophia-tolli-bridal/17644-sophia-tolli-fall-winter-2017-y21746-corona-off-the-shoulder-mermaid-sweet-chapel-train-ivory-embroidery-lace-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/56722-thickbox_default/sophia-tolli-fall-winter-2017-y21746-corona-off-the-shoulder-mermaid-sweet-chapel-train-ivory-embroidery-lace-wedding-dress.jpg" alt="Sophia Tolli Fall/Winter 2017 Y21746 Corona Off-the-shoulder Mermaid Sweet Chapel Train Ivory Embroidery Lace Wedding Dress 3" /></a>
+<a href="https://www.hectodress.com/sophia-tolli-bridal/17644-sophia-tolli-fall-winter-2017-y21746-corona-off-the-shoulder-mermaid-sweet-chapel-train-ivory-embroidery-lace-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/56721-thickbox_default/sophia-tolli-fall-winter-2017-y21746-corona-off-the-shoulder-mermaid-sweet-chapel-train-ivory-embroidery-lace-wedding-dress.jpg" alt="Sophia Tolli Fall/Winter 2017 Y21746 Corona Off-the-shoulder Mermaid Sweet Chapel Train Ivory Embroidery Lace Wedding Dress 4" /></a>
+
+Buy it: [Sophia Tolli Fall/Winter 2017 Y21746 Corona Off-the-shoulder Mermaid Sweet Chapel Train Ivory Embroidery Lace Wedding Dress](https://www.hectodress.com/sophia-tolli-bridal/17644-sophia-tolli-fall-winter-2017-y21746-corona-off-the-shoulder-mermaid-sweet-chapel-train-ivory-embroidery-lace-wedding-dress.html "Sophia Tolli Fall/Winter 2017 Y21746 Corona Off-the-shoulder Mermaid Sweet Chapel Train Ivory Embroidery Lace Wedding Dress")
+
+View more: [Sophia Tolli Bridal](https://www.hectodress.com/364-sophia-tolli-bridal "Sophia Tolli Bridal")
