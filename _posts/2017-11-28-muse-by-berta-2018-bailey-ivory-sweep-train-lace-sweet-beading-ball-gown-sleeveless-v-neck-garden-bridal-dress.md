@@ -1,0 +1,22 @@
+---
+layout: post
+date: '2017-11-28'
+title: "Muse by Berta 2018 BAILEY Ivory Sweep Train Lace Sweet Beading Ball Gown Sleeveless V-Neck Garden Bridal Dress"
+category: Berta
+tags: ["garden","dress","sweep","dresses","unique"]
+image: http://img.hectodress.com/59530-thickbox_default/muse-by-berta-2018-bailey-ivory-sweep-train-lace-sweet-beading-ball-gown-sleeveless-v-neck-garden-bridal-dress.jpg
+---
+Muse by Berta 2018 BAILEY Ivory Sweep Train Lace Sweet Beading Ball Gown Sleeveless V-Neck Garden Bridal Dress
+
+On Sales: **$438.98**
+<a href="https://www.hectodress.com/berta/18915-muse-by-berta-2018-bailey-ivory-sweep-train-lace-sweet-beading-ball-gown-sleeveless-v-neck-garden-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/59530-thickbox_default/muse-by-berta-2018-bailey-ivory-sweep-train-lace-sweet-beading-ball-gown-sleeveless-v-neck-garden-bridal-dress.jpg" alt="Muse by Berta 2018 BAILEY Ivory Sweep Train Lace Sweet Beading Ball Gown Sleeveless V-Neck Garden Bridal Dress 0" /></a>
+<a href="https://www.hectodress.com/berta/18915-muse-by-berta-2018-bailey-ivory-sweep-train-lace-sweet-beading-ball-gown-sleeveless-v-neck-garden-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/59536-thickbox_default/muse-by-berta-2018-bailey-ivory-sweep-train-lace-sweet-beading-ball-gown-sleeveless-v-neck-garden-bridal-dress.jpg" alt="Muse by Berta 2018 BAILEY Ivory Sweep Train Lace Sweet Beading Ball Gown Sleeveless V-Neck Garden Bridal Dress 1" /></a>
+<a href="https://www.hectodress.com/berta/18915-muse-by-berta-2018-bailey-ivory-sweep-train-lace-sweet-beading-ball-gown-sleeveless-v-neck-garden-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/59535-thickbox_default/muse-by-berta-2018-bailey-ivory-sweep-train-lace-sweet-beading-ball-gown-sleeveless-v-neck-garden-bridal-dress.jpg" alt="Muse by Berta 2018 BAILEY Ivory Sweep Train Lace Sweet Beading Ball Gown Sleeveless V-Neck Garden Bridal Dress 2" /></a>
+<a href="https://www.hectodress.com/berta/18915-muse-by-berta-2018-bailey-ivory-sweep-train-lace-sweet-beading-ball-gown-sleeveless-v-neck-garden-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/59534-thickbox_default/muse-by-berta-2018-bailey-ivory-sweep-train-lace-sweet-beading-ball-gown-sleeveless-v-neck-garden-bridal-dress.jpg" alt="Muse by Berta 2018 BAILEY Ivory Sweep Train Lace Sweet Beading Ball Gown Sleeveless V-Neck Garden Bridal Dress 3" /></a>
+<a href="https://www.hectodress.com/berta/18915-muse-by-berta-2018-bailey-ivory-sweep-train-lace-sweet-beading-ball-gown-sleeveless-v-neck-garden-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/59533-thickbox_default/muse-by-berta-2018-bailey-ivory-sweep-train-lace-sweet-beading-ball-gown-sleeveless-v-neck-garden-bridal-dress.jpg" alt="Muse by Berta 2018 BAILEY Ivory Sweep Train Lace Sweet Beading Ball Gown Sleeveless V-Neck Garden Bridal Dress 4" /></a>
+<a href="https://www.hectodress.com/berta/18915-muse-by-berta-2018-bailey-ivory-sweep-train-lace-sweet-beading-ball-gown-sleeveless-v-neck-garden-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/59532-thickbox_default/muse-by-berta-2018-bailey-ivory-sweep-train-lace-sweet-beading-ball-gown-sleeveless-v-neck-garden-bridal-dress.jpg" alt="Muse by Berta 2018 BAILEY Ivory Sweep Train Lace Sweet Beading Ball Gown Sleeveless V-Neck Garden Bridal Dress 5" /></a>
+<a href="https://www.hectodress.com/berta/18915-muse-by-berta-2018-bailey-ivory-sweep-train-lace-sweet-beading-ball-gown-sleeveless-v-neck-garden-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/59531-thickbox_default/muse-by-berta-2018-bailey-ivory-sweep-train-lace-sweet-beading-ball-gown-sleeveless-v-neck-garden-bridal-dress.jpg" alt="Muse by Berta 2018 BAILEY Ivory Sweep Train Lace Sweet Beading Ball Gown Sleeveless V-Neck Garden Bridal Dress 6" /></a>
+
+Buy it: [Muse by Berta 2018 BAILEY Ivory Sweep Train Lace Sweet Beading Ball Gown Sleeveless V-Neck Garden Bridal Dress](https://www.hectodress.com/berta/18915-muse-by-berta-2018-bailey-ivory-sweep-train-lace-sweet-beading-ball-gown-sleeveless-v-neck-garden-bridal-dress.html "Muse by Berta 2018 BAILEY Ivory Sweep Train Lace Sweet Beading Ball Gown Sleeveless V-Neck Garden Bridal Dress")
+
+View more: [Berta](https://www.hectodress.com/318-berta "Berta")
