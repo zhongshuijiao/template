@@ -1,0 +1,4 @@
+---
+slug: outdoor
+name: outdoor
+---
