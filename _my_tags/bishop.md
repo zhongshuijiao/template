@@ -1,0 +1,4 @@
+---
+slug: bishop
+name: bishop
+---
