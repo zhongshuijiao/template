@@ -1,0 +1,4 @@
+---
+slug: pageant
+name: pageant
+---
