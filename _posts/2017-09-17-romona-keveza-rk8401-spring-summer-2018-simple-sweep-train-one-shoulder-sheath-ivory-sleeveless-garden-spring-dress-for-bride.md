@@ -3,7 +3,7 @@ layout: post
 date: '2017-09-17'
 title: "Romona Keveza rk8401 Spring/Summer 2018 Simple Sweep Train One-Shoulder Sheath Ivory Sleeveless Garden Spring Dress For Bride"
 category: Romona Keveza
-tags: ["train","dresses","simple","dress","keveza"]
+tags: ["simple","train","shoulder","dress","garden"]
 image: http://img.hectodress.com/51397-thickbox_default/romona-keveza-rk8401-spring-summer-2018-simple-sweep-train-one-shoulder-sheath-ivory-sleeveless-garden-spring-dress-for-bride.jpg
 ---
 Romona Keveza rk8401 Spring/Summer 2018 Simple Sweep Train One-Shoulder Sheath Ivory Sleeveless Garden Spring Dress For Bride
