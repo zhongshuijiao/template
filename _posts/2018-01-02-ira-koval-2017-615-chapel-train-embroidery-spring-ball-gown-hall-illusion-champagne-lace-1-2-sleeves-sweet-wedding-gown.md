@@ -1,0 +1,21 @@
+---
+layout: post
+date: '2018-01-02'
+title: "Ira Koval 2017 615 Chapel Train Embroidery Spring Ball Gown Hall Illusion Champagne Lace 1/2 Sleeves Sweet Wedding Gown"
+category: Ira Koval
+tags: ["gown","illusion","sleeves","lace","train"]
+image: http://img.hectodress.com/58311-thickbox_default/ira-koval-2017-615-chapel-train-embroidery-spring-ball-gown-hall-illusion-champagne-lace-1-2-sleeves-sweet-wedding-gown.jpg
+---
+Ira Koval 2017 615 Chapel Train Embroidery Spring Ball Gown Hall Illusion Champagne Lace 1/2 Sleeves Sweet Wedding Gown
+
+On Sales: **$368.98**
+<a href="https://www.hectodress.com/ira-koval/18183-ira-koval-2017-615-chapel-train-embroidery-spring-ball-gown-hall-illusion-champagne-lace-1-2-sleeves-sweet-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/58311-thickbox_default/ira-koval-2017-615-chapel-train-embroidery-spring-ball-gown-hall-illusion-champagne-lace-1-2-sleeves-sweet-wedding-gown.jpg" alt="Ira Koval 2017 615 Chapel Train Embroidery Spring Ball Gown Hall Illusion Champagne Lace 1/2 Sleeves Sweet Wedding Gown 0" /></a>
+<a href="https://www.hectodress.com/ira-koval/18183-ira-koval-2017-615-chapel-train-embroidery-spring-ball-gown-hall-illusion-champagne-lace-1-2-sleeves-sweet-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/58316-thickbox_default/ira-koval-2017-615-chapel-train-embroidery-spring-ball-gown-hall-illusion-champagne-lace-1-2-sleeves-sweet-wedding-gown.jpg" alt="Ira Koval 2017 615 Chapel Train Embroidery Spring Ball Gown Hall Illusion Champagne Lace 1/2 Sleeves Sweet Wedding Gown 1" /></a>
+<a href="https://www.hectodress.com/ira-koval/18183-ira-koval-2017-615-chapel-train-embroidery-spring-ball-gown-hall-illusion-champagne-lace-1-2-sleeves-sweet-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/58315-thickbox_default/ira-koval-2017-615-chapel-train-embroidery-spring-ball-gown-hall-illusion-champagne-lace-1-2-sleeves-sweet-wedding-gown.jpg" alt="Ira Koval 2017 615 Chapel Train Embroidery Spring Ball Gown Hall Illusion Champagne Lace 1/2 Sleeves Sweet Wedding Gown 2" /></a>
+<a href="https://www.hectodress.com/ira-koval/18183-ira-koval-2017-615-chapel-train-embroidery-spring-ball-gown-hall-illusion-champagne-lace-1-2-sleeves-sweet-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/58314-thickbox_default/ira-koval-2017-615-chapel-train-embroidery-spring-ball-gown-hall-illusion-champagne-lace-1-2-sleeves-sweet-wedding-gown.jpg" alt="Ira Koval 2017 615 Chapel Train Embroidery Spring Ball Gown Hall Illusion Champagne Lace 1/2 Sleeves Sweet Wedding Gown 3" /></a>
+<a href="https://www.hectodress.com/ira-koval/18183-ira-koval-2017-615-chapel-train-embroidery-spring-ball-gown-hall-illusion-champagne-lace-1-2-sleeves-sweet-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/58313-thickbox_default/ira-koval-2017-615-chapel-train-embroidery-spring-ball-gown-hall-illusion-champagne-lace-1-2-sleeves-sweet-wedding-gown.jpg" alt="Ira Koval 2017 615 Chapel Train Embroidery Spring Ball Gown Hall Illusion Champagne Lace 1/2 Sleeves Sweet Wedding Gown 4" /></a>
+<a href="https://www.hectodress.com/ira-koval/18183-ira-koval-2017-615-chapel-train-embroidery-spring-ball-gown-hall-illusion-champagne-lace-1-2-sleeves-sweet-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/58312-thickbox_default/ira-koval-2017-615-chapel-train-embroidery-spring-ball-gown-hall-illusion-champagne-lace-1-2-sleeves-sweet-wedding-gown.jpg" alt="Ira Koval 2017 615 Chapel Train Embroidery Spring Ball Gown Hall Illusion Champagne Lace 1/2 Sleeves Sweet Wedding Gown 5" /></a>
+
+Buy it: [Ira Koval 2017 615 Chapel Train Embroidery Spring Ball Gown Hall Illusion Champagne Lace 1/2 Sleeves Sweet Wedding Gown](https://www.hectodress.com/ira-koval/18183-ira-koval-2017-615-chapel-train-embroidery-spring-ball-gown-hall-illusion-champagne-lace-1-2-sleeves-sweet-wedding-gown.html "Ira Koval 2017 615 Chapel Train Embroidery Spring Ball Gown Hall Illusion Champagne Lace 1/2 Sleeves Sweet Wedding Gown")
+
+View more: [Ira Koval](https://www.hectodress.com/77-ira-koval "Ira Koval")
