@@ -1,0 +1,20 @@
+---
+layout: post
+date: '2017-11-24'
+title: "Ellis Bridal 2018 Lace Ballgown | Style 11752 Chapel Train Appliques Lace Sweet Aline Ivory Long Sleeves High Neck Bridal Dress"
+category: Ellis Bridal
+tags: ["high","little","long","ballgown","ivory"]
+image: http://img.hectodress.com/60878-thickbox_default/ellis-bridal-2018-lace-ballgown-style-11752-chapel-train-appliques-lace-sweet-aline-ivory-long-sleeves-high-neck-bridal-dress.jpg
+---
+Ellis Bridal 2018 Lace Ballgown | Style 11752 Chapel Train Appliques Lace Sweet Aline Ivory Long Sleeves High Neck Bridal Dress
+
+On Sales: **$388.98**
+<a href="https://www.hectodress.com/ellis-bridal/19623-ellis-bridal-2018-lace-ballgown-style-11752-chapel-train-appliques-lace-sweet-aline-ivory-long-sleeves-high-neck-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/60878-thickbox_default/ellis-bridal-2018-lace-ballgown-style-11752-chapel-train-appliques-lace-sweet-aline-ivory-long-sleeves-high-neck-bridal-dress.jpg" alt="Ellis Bridal 2018 Lace Ballgown | Style 11752 Chapel Train Appliques Lace Sweet Aline Ivory Long Sleeves High Neck Bridal Dress 0" /></a>
+<a href="https://www.hectodress.com/ellis-bridal/19623-ellis-bridal-2018-lace-ballgown-style-11752-chapel-train-appliques-lace-sweet-aline-ivory-long-sleeves-high-neck-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/60882-thickbox_default/ellis-bridal-2018-lace-ballgown-style-11752-chapel-train-appliques-lace-sweet-aline-ivory-long-sleeves-high-neck-bridal-dress.jpg" alt="Ellis Bridal 2018 Lace Ballgown | Style 11752 Chapel Train Appliques Lace Sweet Aline Ivory Long Sleeves High Neck Bridal Dress 1" /></a>
+<a href="https://www.hectodress.com/ellis-bridal/19623-ellis-bridal-2018-lace-ballgown-style-11752-chapel-train-appliques-lace-sweet-aline-ivory-long-sleeves-high-neck-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/60881-thickbox_default/ellis-bridal-2018-lace-ballgown-style-11752-chapel-train-appliques-lace-sweet-aline-ivory-long-sleeves-high-neck-bridal-dress.jpg" alt="Ellis Bridal 2018 Lace Ballgown | Style 11752 Chapel Train Appliques Lace Sweet Aline Ivory Long Sleeves High Neck Bridal Dress 2" /></a>
+<a href="https://www.hectodress.com/ellis-bridal/19623-ellis-bridal-2018-lace-ballgown-style-11752-chapel-train-appliques-lace-sweet-aline-ivory-long-sleeves-high-neck-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/60880-thickbox_default/ellis-bridal-2018-lace-ballgown-style-11752-chapel-train-appliques-lace-sweet-aline-ivory-long-sleeves-high-neck-bridal-dress.jpg" alt="Ellis Bridal 2018 Lace Ballgown | Style 11752 Chapel Train Appliques Lace Sweet Aline Ivory Long Sleeves High Neck Bridal Dress 3" /></a>
+<a href="https://www.hectodress.com/ellis-bridal/19623-ellis-bridal-2018-lace-ballgown-style-11752-chapel-train-appliques-lace-sweet-aline-ivory-long-sleeves-high-neck-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/60879-thickbox_default/ellis-bridal-2018-lace-ballgown-style-11752-chapel-train-appliques-lace-sweet-aline-ivory-long-sleeves-high-neck-bridal-dress.jpg" alt="Ellis Bridal 2018 Lace Ballgown | Style 11752 Chapel Train Appliques Lace Sweet Aline Ivory Long Sleeves High Neck Bridal Dress 4" /></a>
+
+Buy it: [Ellis Bridal 2018 Lace Ballgown | Style 11752 Chapel Train Appliques Lace Sweet Aline Ivory Long Sleeves High Neck Bridal Dress](https://www.hectodress.com/ellis-bridal/19623-ellis-bridal-2018-lace-ballgown-style-11752-chapel-train-appliques-lace-sweet-aline-ivory-long-sleeves-high-neck-bridal-dress.html "Ellis Bridal 2018 Lace Ballgown | Style 11752 Chapel Train Appliques Lace Sweet Aline Ivory Long Sleeves High Neck Bridal Dress")
+
+View more: [Ellis Bridal](https://www.hectodress.com/373-ellis-bridal "Ellis Bridal")
