@@ -1,0 +1,21 @@
+---
+layout: post
+date: '2018-01-16'
+title: "BHLDN Spring/Summer 2018 Camilla Ivory Sweet Spaghetti Straps Knee-Length Sleeveless Ball Gown with Sash Tulle Bridal Dress"
+category: BHLDN
+tags: ["spring","ivory","black","unique","gown"]
+image: http://img.hectodress.com/62380-thickbox_default/bhldn-spring-summer-2018-camilla-ivory-sweet-spaghetti-straps-knee-length-sleeveless-ball-gown-with-sash-tulle-bridal-dress.jpg
+---
+BHLDN Spring/Summer 2018 Camilla Ivory Sweet Spaghetti Straps Knee-Length Sleeveless Ball Gown with Sash Tulle Bridal Dress
+
+On Sales: **$218.98**
+<a href="https://www.hectodress.com/bhldn/20106-bhldn-spring-summer-2018-camilla-ivory-sweet-spaghetti-straps-knee-length-sleeveless-ball-gown-with-sash-tulle-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/62380-thickbox_default/bhldn-spring-summer-2018-camilla-ivory-sweet-spaghetti-straps-knee-length-sleeveless-ball-gown-with-sash-tulle-bridal-dress.jpg" alt="BHLDN Spring/Summer 2018 Camilla Ivory Sweet Spaghetti Straps Knee-Length Sleeveless Ball Gown with Sash Tulle Bridal Dress 0" /></a>
+<a href="https://www.hectodress.com/bhldn/20106-bhldn-spring-summer-2018-camilla-ivory-sweet-spaghetti-straps-knee-length-sleeveless-ball-gown-with-sash-tulle-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/62385-thickbox_default/bhldn-spring-summer-2018-camilla-ivory-sweet-spaghetti-straps-knee-length-sleeveless-ball-gown-with-sash-tulle-bridal-dress.jpg" alt="BHLDN Spring/Summer 2018 Camilla Ivory Sweet Spaghetti Straps Knee-Length Sleeveless Ball Gown with Sash Tulle Bridal Dress 1" /></a>
+<a href="https://www.hectodress.com/bhldn/20106-bhldn-spring-summer-2018-camilla-ivory-sweet-spaghetti-straps-knee-length-sleeveless-ball-gown-with-sash-tulle-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/62384-thickbox_default/bhldn-spring-summer-2018-camilla-ivory-sweet-spaghetti-straps-knee-length-sleeveless-ball-gown-with-sash-tulle-bridal-dress.jpg" alt="BHLDN Spring/Summer 2018 Camilla Ivory Sweet Spaghetti Straps Knee-Length Sleeveless Ball Gown with Sash Tulle Bridal Dress 2" /></a>
+<a href="https://www.hectodress.com/bhldn/20106-bhldn-spring-summer-2018-camilla-ivory-sweet-spaghetti-straps-knee-length-sleeveless-ball-gown-with-sash-tulle-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/62383-thickbox_default/bhldn-spring-summer-2018-camilla-ivory-sweet-spaghetti-straps-knee-length-sleeveless-ball-gown-with-sash-tulle-bridal-dress.jpg" alt="BHLDN Spring/Summer 2018 Camilla Ivory Sweet Spaghetti Straps Knee-Length Sleeveless Ball Gown with Sash Tulle Bridal Dress 3" /></a>
+<a href="https://www.hectodress.com/bhldn/20106-bhldn-spring-summer-2018-camilla-ivory-sweet-spaghetti-straps-knee-length-sleeveless-ball-gown-with-sash-tulle-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/62382-thickbox_default/bhldn-spring-summer-2018-camilla-ivory-sweet-spaghetti-straps-knee-length-sleeveless-ball-gown-with-sash-tulle-bridal-dress.jpg" alt="BHLDN Spring/Summer 2018 Camilla Ivory Sweet Spaghetti Straps Knee-Length Sleeveless Ball Gown with Sash Tulle Bridal Dress 4" /></a>
+<a href="https://www.hectodress.com/bhldn/20106-bhldn-spring-summer-2018-camilla-ivory-sweet-spaghetti-straps-knee-length-sleeveless-ball-gown-with-sash-tulle-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/62381-thickbox_default/bhldn-spring-summer-2018-camilla-ivory-sweet-spaghetti-straps-knee-length-sleeveless-ball-gown-with-sash-tulle-bridal-dress.jpg" alt="BHLDN Spring/Summer 2018 Camilla Ivory Sweet Spaghetti Straps Knee-Length Sleeveless Ball Gown with Sash Tulle Bridal Dress 5" /></a>
+
+Buy it: [BHLDN Spring/Summer 2018 Camilla Ivory Sweet Spaghetti Straps Knee-Length Sleeveless Ball Gown with Sash Tulle Bridal Dress](https://www.hectodress.com/bhldn/20106-bhldn-spring-summer-2018-camilla-ivory-sweet-spaghetti-straps-knee-length-sleeveless-ball-gown-with-sash-tulle-bridal-dress.html "BHLDN Spring/Summer 2018 Camilla Ivory Sweet Spaghetti Straps Knee-Length Sleeveless Ball Gown with Sash Tulle Bridal Dress")
+
+View more: [BHLDN](https://www.hectodress.com/354-bhldn "BHLDN")
