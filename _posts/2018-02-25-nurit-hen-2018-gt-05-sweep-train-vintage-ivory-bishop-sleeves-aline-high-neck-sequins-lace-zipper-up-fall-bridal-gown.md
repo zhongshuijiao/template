@@ -1,0 +1,21 @@
+---
+layout: post
+date: '2018-02-25'
+title: "Nurit Hen 2018 GT 05 Sweep Train Vintage Ivory Bishop Sleeves Aline High Neck Sequins Lace Zipper Up Fall Bridal Gown"
+category: Nurit Hen
+tags: ["wedding","sequins","bishop","ivory","nurit"]
+image: http://img.hectodress.com/64810-thickbox_default/nurit-hen-2018-gt-05-sweep-train-vintage-ivory-bishop-sleeves-aline-high-neck-sequins-lace-zipper-up-fall-bridal-gown.jpg
+---
+Nurit Hen 2018 GT 05 Sweep Train Vintage Ivory Bishop Sleeves Aline High Neck Sequins Lace Zipper Up Fall Bridal Gown
+
+On Sales: **$458.98**
+<a href="https://www.hectodress.com/nurit-hen/20968-nurit-hen-2018-gt-05-sweep-train-vintage-ivory-bishop-sleeves-aline-high-neck-sequins-lace-zipper-up-fall-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/64810-thickbox_default/nurit-hen-2018-gt-05-sweep-train-vintage-ivory-bishop-sleeves-aline-high-neck-sequins-lace-zipper-up-fall-bridal-gown.jpg" alt="Nurit Hen 2018 GT 05 Sweep Train Vintage Ivory Bishop Sleeves Aline High Neck Sequins Lace Zipper Up Fall Bridal Gown 0" /></a>
+<a href="https://www.hectodress.com/nurit-hen/20968-nurit-hen-2018-gt-05-sweep-train-vintage-ivory-bishop-sleeves-aline-high-neck-sequins-lace-zipper-up-fall-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/64815-thickbox_default/nurit-hen-2018-gt-05-sweep-train-vintage-ivory-bishop-sleeves-aline-high-neck-sequins-lace-zipper-up-fall-bridal-gown.jpg" alt="Nurit Hen 2018 GT 05 Sweep Train Vintage Ivory Bishop Sleeves Aline High Neck Sequins Lace Zipper Up Fall Bridal Gown 1" /></a>
+<a href="https://www.hectodress.com/nurit-hen/20968-nurit-hen-2018-gt-05-sweep-train-vintage-ivory-bishop-sleeves-aline-high-neck-sequins-lace-zipper-up-fall-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/64814-thickbox_default/nurit-hen-2018-gt-05-sweep-train-vintage-ivory-bishop-sleeves-aline-high-neck-sequins-lace-zipper-up-fall-bridal-gown.jpg" alt="Nurit Hen 2018 GT 05 Sweep Train Vintage Ivory Bishop Sleeves Aline High Neck Sequins Lace Zipper Up Fall Bridal Gown 2" /></a>
+<a href="https://www.hectodress.com/nurit-hen/20968-nurit-hen-2018-gt-05-sweep-train-vintage-ivory-bishop-sleeves-aline-high-neck-sequins-lace-zipper-up-fall-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/64813-thickbox_default/nurit-hen-2018-gt-05-sweep-train-vintage-ivory-bishop-sleeves-aline-high-neck-sequins-lace-zipper-up-fall-bridal-gown.jpg" alt="Nurit Hen 2018 GT 05 Sweep Train Vintage Ivory Bishop Sleeves Aline High Neck Sequins Lace Zipper Up Fall Bridal Gown 3" /></a>
+<a href="https://www.hectodress.com/nurit-hen/20968-nurit-hen-2018-gt-05-sweep-train-vintage-ivory-bishop-sleeves-aline-high-neck-sequins-lace-zipper-up-fall-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/64812-thickbox_default/nurit-hen-2018-gt-05-sweep-train-vintage-ivory-bishop-sleeves-aline-high-neck-sequins-lace-zipper-up-fall-bridal-gown.jpg" alt="Nurit Hen 2018 GT 05 Sweep Train Vintage Ivory Bishop Sleeves Aline High Neck Sequins Lace Zipper Up Fall Bridal Gown 4" /></a>
+<a href="https://www.hectodress.com/nurit-hen/20968-nurit-hen-2018-gt-05-sweep-train-vintage-ivory-bishop-sleeves-aline-high-neck-sequins-lace-zipper-up-fall-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/64811-thickbox_default/nurit-hen-2018-gt-05-sweep-train-vintage-ivory-bishop-sleeves-aline-high-neck-sequins-lace-zipper-up-fall-bridal-gown.jpg" alt="Nurit Hen 2018 GT 05 Sweep Train Vintage Ivory Bishop Sleeves Aline High Neck Sequins Lace Zipper Up Fall Bridal Gown 5" /></a>
+
+Buy it: [Nurit Hen 2018 GT 05 Sweep Train Vintage Ivory Bishop Sleeves Aline High Neck Sequins Lace Zipper Up Fall Bridal Gown](https://www.hectodress.com/nurit-hen/20968-nurit-hen-2018-gt-05-sweep-train-vintage-ivory-bishop-sleeves-aline-high-neck-sequins-lace-zipper-up-fall-bridal-gown.html "Nurit Hen 2018 GT 05 Sweep Train Vintage Ivory Bishop Sleeves Aline High Neck Sequins Lace Zipper Up Fall Bridal Gown")
+
+View more: [Nurit Hen](https://www.hectodress.com/385-nurit-hen "Nurit Hen")
