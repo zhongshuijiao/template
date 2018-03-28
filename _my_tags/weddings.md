@@ -1,0 +1,4 @@
+---
+slug: weddings
+name: weddings
+---
