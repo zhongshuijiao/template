@@ -1,0 +1,4 @@
+---
+slug: rihana
+name: rihana
+---
