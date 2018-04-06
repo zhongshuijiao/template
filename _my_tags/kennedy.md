@@ -1,0 +1,4 @@
+---
+slug: kennedy
+name: kennedy
+---
