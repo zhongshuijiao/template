@@ -1,0 +1,4 @@
+---
+slug: ceremony
+name: ceremony
+---
