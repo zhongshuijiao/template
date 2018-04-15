@@ -1,0 +1,20 @@
+---
+layout: post
+date: '2018-03-17'
+title: "Mikaella Fall/Winter 2017 Style 2151 Satin Appliques Open Back Chapel Train Ivory Long Sleeves Illusion Sheath Wedding Gown"
+category: Mikaella
+tags: ["chapel","back","illusion","wedding","ivory"]
+image: http://img.hectodress.com/52417-thickbox_default/mikaella-fall-winter-2017-style-2151-satin-appliques-open-back-chapel-train-ivory-long-sleeves-illusion-sheath-wedding-gown.jpg
+---
+Mikaella Fall/Winter 2017 Style 2151 Satin Appliques Open Back Chapel Train Ivory Long Sleeves Illusion Sheath Wedding Gown
+
+On Sales: **$319.98**
+<a href="https://www.hectodress.com/mikaella/16509-mikaella-fall-winter-2017-style-2151-satin-appliques-open-back-chapel-train-ivory-long-sleeves-illusion-sheath-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/52417-thickbox_default/mikaella-fall-winter-2017-style-2151-satin-appliques-open-back-chapel-train-ivory-long-sleeves-illusion-sheath-wedding-gown.jpg" alt="Mikaella Fall/Winter 2017 Style 2151 Satin Appliques Open Back Chapel Train Ivory Long Sleeves Illusion Sheath Wedding Gown 0" /></a>
+<a href="https://www.hectodress.com/mikaella/16509-mikaella-fall-winter-2017-style-2151-satin-appliques-open-back-chapel-train-ivory-long-sleeves-illusion-sheath-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/52421-thickbox_default/mikaella-fall-winter-2017-style-2151-satin-appliques-open-back-chapel-train-ivory-long-sleeves-illusion-sheath-wedding-gown.jpg" alt="Mikaella Fall/Winter 2017 Style 2151 Satin Appliques Open Back Chapel Train Ivory Long Sleeves Illusion Sheath Wedding Gown 1" /></a>
+<a href="https://www.hectodress.com/mikaella/16509-mikaella-fall-winter-2017-style-2151-satin-appliques-open-back-chapel-train-ivory-long-sleeves-illusion-sheath-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/52420-thickbox_default/mikaella-fall-winter-2017-style-2151-satin-appliques-open-back-chapel-train-ivory-long-sleeves-illusion-sheath-wedding-gown.jpg" alt="Mikaella Fall/Winter 2017 Style 2151 Satin Appliques Open Back Chapel Train Ivory Long Sleeves Illusion Sheath Wedding Gown 2" /></a>
+<a href="https://www.hectodress.com/mikaella/16509-mikaella-fall-winter-2017-style-2151-satin-appliques-open-back-chapel-train-ivory-long-sleeves-illusion-sheath-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/52419-thickbox_default/mikaella-fall-winter-2017-style-2151-satin-appliques-open-back-chapel-train-ivory-long-sleeves-illusion-sheath-wedding-gown.jpg" alt="Mikaella Fall/Winter 2017 Style 2151 Satin Appliques Open Back Chapel Train Ivory Long Sleeves Illusion Sheath Wedding Gown 3" /></a>
+<a href="https://www.hectodress.com/mikaella/16509-mikaella-fall-winter-2017-style-2151-satin-appliques-open-back-chapel-train-ivory-long-sleeves-illusion-sheath-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/52418-thickbox_default/mikaella-fall-winter-2017-style-2151-satin-appliques-open-back-chapel-train-ivory-long-sleeves-illusion-sheath-wedding-gown.jpg" alt="Mikaella Fall/Winter 2017 Style 2151 Satin Appliques Open Back Chapel Train Ivory Long Sleeves Illusion Sheath Wedding Gown 4" /></a>
+
+Buy it: [Mikaella Fall/Winter 2017 Style 2151 Satin Appliques Open Back Chapel Train Ivory Long Sleeves Illusion Sheath Wedding Gown](https://www.hectodress.com/mikaella/16509-mikaella-fall-winter-2017-style-2151-satin-appliques-open-back-chapel-train-ivory-long-sleeves-illusion-sheath-wedding-gown.html "Mikaella Fall/Winter 2017 Style 2151 Satin Appliques Open Back Chapel Train Ivory Long Sleeves Illusion Sheath Wedding Gown")
+
+View more: [Mikaella](https://www.hectodress.com/325-mikaella "Mikaella")
