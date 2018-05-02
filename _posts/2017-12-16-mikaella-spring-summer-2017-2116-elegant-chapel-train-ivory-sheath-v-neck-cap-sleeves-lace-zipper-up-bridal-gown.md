@@ -1,0 +1,21 @@
+---
+layout: post
+date: '2017-12-16'
+title: "Mikaella Spring/Summer 2017 2116 Elegant Chapel Train Ivory Sheath V-Neck Cap Sleeves Lace Zipper Up Bridal Gown"
+category: Mikaella
+tags: ["rosy","bridesmaid","sheath","unique","little"]
+image: http://img.hectodress.com/58528-thickbox_default/mikaella-spring-summer-2017-2116-elegant-chapel-train-ivory-sheath-v-neck-cap-sleeves-lace-zipper-up-bridal-gown.jpg
+---
+Mikaella Spring/Summer 2017 2116 Elegant Chapel Train Ivory Sheath V-Neck Cap Sleeves Lace Zipper Up Bridal Gown
+
+On Sales: **$338.98**
+<a href="https://www.hectodress.com/mikaella/18294-mikaella-spring-summer-2017-2116-elegant-chapel-train-ivory-sheath-v-neck-cap-sleeves-lace-zipper-up-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/58528-thickbox_default/mikaella-spring-summer-2017-2116-elegant-chapel-train-ivory-sheath-v-neck-cap-sleeves-lace-zipper-up-bridal-gown.jpg" alt="Mikaella Spring/Summer 2017 2116 Elegant Chapel Train Ivory Sheath V-Neck Cap Sleeves Lace Zipper Up Bridal Gown 0" /></a>
+<a href="https://www.hectodress.com/mikaella/18294-mikaella-spring-summer-2017-2116-elegant-chapel-train-ivory-sheath-v-neck-cap-sleeves-lace-zipper-up-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/58533-thickbox_default/mikaella-spring-summer-2017-2116-elegant-chapel-train-ivory-sheath-v-neck-cap-sleeves-lace-zipper-up-bridal-gown.jpg" alt="Mikaella Spring/Summer 2017 2116 Elegant Chapel Train Ivory Sheath V-Neck Cap Sleeves Lace Zipper Up Bridal Gown 1" /></a>
+<a href="https://www.hectodress.com/mikaella/18294-mikaella-spring-summer-2017-2116-elegant-chapel-train-ivory-sheath-v-neck-cap-sleeves-lace-zipper-up-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/58532-thickbox_default/mikaella-spring-summer-2017-2116-elegant-chapel-train-ivory-sheath-v-neck-cap-sleeves-lace-zipper-up-bridal-gown.jpg" alt="Mikaella Spring/Summer 2017 2116 Elegant Chapel Train Ivory Sheath V-Neck Cap Sleeves Lace Zipper Up Bridal Gown 2" /></a>
+<a href="https://www.hectodress.com/mikaella/18294-mikaella-spring-summer-2017-2116-elegant-chapel-train-ivory-sheath-v-neck-cap-sleeves-lace-zipper-up-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/58531-thickbox_default/mikaella-spring-summer-2017-2116-elegant-chapel-train-ivory-sheath-v-neck-cap-sleeves-lace-zipper-up-bridal-gown.jpg" alt="Mikaella Spring/Summer 2017 2116 Elegant Chapel Train Ivory Sheath V-Neck Cap Sleeves Lace Zipper Up Bridal Gown 3" /></a>
+<a href="https://www.hectodress.com/mikaella/18294-mikaella-spring-summer-2017-2116-elegant-chapel-train-ivory-sheath-v-neck-cap-sleeves-lace-zipper-up-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/58530-thickbox_default/mikaella-spring-summer-2017-2116-elegant-chapel-train-ivory-sheath-v-neck-cap-sleeves-lace-zipper-up-bridal-gown.jpg" alt="Mikaella Spring/Summer 2017 2116 Elegant Chapel Train Ivory Sheath V-Neck Cap Sleeves Lace Zipper Up Bridal Gown 4" /></a>
+<a href="https://www.hectodress.com/mikaella/18294-mikaella-spring-summer-2017-2116-elegant-chapel-train-ivory-sheath-v-neck-cap-sleeves-lace-zipper-up-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/58529-thickbox_default/mikaella-spring-summer-2017-2116-elegant-chapel-train-ivory-sheath-v-neck-cap-sleeves-lace-zipper-up-bridal-gown.jpg" alt="Mikaella Spring/Summer 2017 2116 Elegant Chapel Train Ivory Sheath V-Neck Cap Sleeves Lace Zipper Up Bridal Gown 5" /></a>
+
+Buy it: [Mikaella Spring/Summer 2017 2116 Elegant Chapel Train Ivory Sheath V-Neck Cap Sleeves Lace Zipper Up Bridal Gown](https://www.hectodress.com/mikaella/18294-mikaella-spring-summer-2017-2116-elegant-chapel-train-ivory-sheath-v-neck-cap-sleeves-lace-zipper-up-bridal-gown.html "Mikaella Spring/Summer 2017 2116 Elegant Chapel Train Ivory Sheath V-Neck Cap Sleeves Lace Zipper Up Bridal Gown")
+
+View more: [Mikaella](https://www.hectodress.com/325-mikaella "Mikaella")
