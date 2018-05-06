@@ -1,0 +1,4 @@
+---
+slug: outfit
+name: outfit
+---
