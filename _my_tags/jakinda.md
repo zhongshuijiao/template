@@ -1,0 +1,4 @@
+---
+slug: jakinda
+name: jakinda
+---
