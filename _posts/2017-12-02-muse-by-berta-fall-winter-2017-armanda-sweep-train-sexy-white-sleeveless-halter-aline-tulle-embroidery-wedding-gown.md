@@ -1,0 +1,21 @@
+---
+layout: post
+date: '2017-12-02'
+title: "Muse by Berta Fall/Winter 2017 ARMANDA Sweep Train Sexy White Sleeveless Halter Aline Tulle Embroidery Wedding Gown"
+category: Berta
+tags: ["unique","rosy","bridesmaid","winter","tulle"]
+image: http://img.hectodress.com/61549-thickbox_default/muse-by-berta-fall-winter-2017-armanda-sweep-train-sexy-white-sleeveless-halter-aline-tulle-embroidery-wedding-gown.jpg
+---
+Muse by Berta Fall/Winter 2017 ARMANDA Sweep Train Sexy White Sleeveless Halter Aline Tulle Embroidery Wedding Gown
+
+On Sales: **$378.98**
+<a href="https://www.hectodress.com/berta/19858-muse-by-berta-fall-winter-2017-armanda-sweep-train-sexy-white-sleeveless-halter-aline-tulle-embroidery-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/61549-thickbox_default/muse-by-berta-fall-winter-2017-armanda-sweep-train-sexy-white-sleeveless-halter-aline-tulle-embroidery-wedding-gown.jpg" alt="Muse by Berta Fall/Winter 2017 ARMANDA Sweep Train Sexy White Sleeveless Halter Aline Tulle Embroidery Wedding Gown 0" /></a>
+<a href="https://www.hectodress.com/berta/19858-muse-by-berta-fall-winter-2017-armanda-sweep-train-sexy-white-sleeveless-halter-aline-tulle-embroidery-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/61554-thickbox_default/muse-by-berta-fall-winter-2017-armanda-sweep-train-sexy-white-sleeveless-halter-aline-tulle-embroidery-wedding-gown.jpg" alt="Muse by Berta Fall/Winter 2017 ARMANDA Sweep Train Sexy White Sleeveless Halter Aline Tulle Embroidery Wedding Gown 1" /></a>
+<a href="https://www.hectodress.com/berta/19858-muse-by-berta-fall-winter-2017-armanda-sweep-train-sexy-white-sleeveless-halter-aline-tulle-embroidery-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/61553-thickbox_default/muse-by-berta-fall-winter-2017-armanda-sweep-train-sexy-white-sleeveless-halter-aline-tulle-embroidery-wedding-gown.jpg" alt="Muse by Berta Fall/Winter 2017 ARMANDA Sweep Train Sexy White Sleeveless Halter Aline Tulle Embroidery Wedding Gown 2" /></a>
+<a href="https://www.hectodress.com/berta/19858-muse-by-berta-fall-winter-2017-armanda-sweep-train-sexy-white-sleeveless-halter-aline-tulle-embroidery-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/61552-thickbox_default/muse-by-berta-fall-winter-2017-armanda-sweep-train-sexy-white-sleeveless-halter-aline-tulle-embroidery-wedding-gown.jpg" alt="Muse by Berta Fall/Winter 2017 ARMANDA Sweep Train Sexy White Sleeveless Halter Aline Tulle Embroidery Wedding Gown 3" /></a>
+<a href="https://www.hectodress.com/berta/19858-muse-by-berta-fall-winter-2017-armanda-sweep-train-sexy-white-sleeveless-halter-aline-tulle-embroidery-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/61551-thickbox_default/muse-by-berta-fall-winter-2017-armanda-sweep-train-sexy-white-sleeveless-halter-aline-tulle-embroidery-wedding-gown.jpg" alt="Muse by Berta Fall/Winter 2017 ARMANDA Sweep Train Sexy White Sleeveless Halter Aline Tulle Embroidery Wedding Gown 4" /></a>
+<a href="https://www.hectodress.com/berta/19858-muse-by-berta-fall-winter-2017-armanda-sweep-train-sexy-white-sleeveless-halter-aline-tulle-embroidery-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/61550-thickbox_default/muse-by-berta-fall-winter-2017-armanda-sweep-train-sexy-white-sleeveless-halter-aline-tulle-embroidery-wedding-gown.jpg" alt="Muse by Berta Fall/Winter 2017 ARMANDA Sweep Train Sexy White Sleeveless Halter Aline Tulle Embroidery Wedding Gown 5" /></a>
+
+Buy it: [Muse by Berta Fall/Winter 2017 ARMANDA Sweep Train Sexy White Sleeveless Halter Aline Tulle Embroidery Wedding Gown](https://www.hectodress.com/berta/19858-muse-by-berta-fall-winter-2017-armanda-sweep-train-sexy-white-sleeveless-halter-aline-tulle-embroidery-wedding-gown.html "Muse by Berta Fall/Winter 2017 ARMANDA Sweep Train Sexy White Sleeveless Halter Aline Tulle Embroidery Wedding Gown")
+
+View more: [Berta](https://www.hectodress.com/318-berta "Berta")
