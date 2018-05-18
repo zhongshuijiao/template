@@ -1,0 +1,4 @@
+---
+slug: lendel
+name: lendel
+---
