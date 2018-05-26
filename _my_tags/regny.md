@@ -1,0 +1,4 @@
+---
+slug: regny
+name: regny
+---
