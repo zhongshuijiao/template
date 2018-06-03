@@ -1,0 +1,4 @@
+---
+slug: amadis
+name: amadis
+---
