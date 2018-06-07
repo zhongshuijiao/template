@@ -1,0 +1,20 @@
+---
+layout: post
+date: '2018-01-18'
+title: "Sophia Tolli Fall/Winter 2017 Y21757 Cosmo Ivory Sweet Chapel Train Sweetheart Lace Beading Aline Sleeveless Wedding Dress"
+category: Sophia Tolli Bridal
+tags: ["lace","sleeveless","chapel","sweet","unique"]
+image: http://img.hectodress.com/56743-thickbox_default/sophia-tolli-fall-winter-2017-y21757-cosmo-ivory-sweet-chapel-train-sweetheart-lace-beading-aline-sleeveless-wedding-dress.jpg
+---
+Sophia Tolli Fall/Winter 2017 Y21757 Cosmo Ivory Sweet Chapel Train Sweetheart Lace Beading Aline Sleeveless Wedding Dress
+
+On Sales: **$399.98**
+<a href="https://www.hectodress.com/sophia-tolli-bridal/17649-sophia-tolli-fall-winter-2017-y21757-cosmo-ivory-sweet-chapel-train-sweetheart-lace-beading-aline-sleeveless-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/56743-thickbox_default/sophia-tolli-fall-winter-2017-y21757-cosmo-ivory-sweet-chapel-train-sweetheart-lace-beading-aline-sleeveless-wedding-dress.jpg" alt="Sophia Tolli Fall/Winter 2017 Y21757 Cosmo Ivory Sweet Chapel Train Sweetheart Lace Beading Aline Sleeveless Wedding Dress 0" /></a>
+<a href="https://www.hectodress.com/sophia-tolli-bridal/17649-sophia-tolli-fall-winter-2017-y21757-cosmo-ivory-sweet-chapel-train-sweetheart-lace-beading-aline-sleeveless-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/56747-thickbox_default/sophia-tolli-fall-winter-2017-y21757-cosmo-ivory-sweet-chapel-train-sweetheart-lace-beading-aline-sleeveless-wedding-dress.jpg" alt="Sophia Tolli Fall/Winter 2017 Y21757 Cosmo Ivory Sweet Chapel Train Sweetheart Lace Beading Aline Sleeveless Wedding Dress 1" /></a>
+<a href="https://www.hectodress.com/sophia-tolli-bridal/17649-sophia-tolli-fall-winter-2017-y21757-cosmo-ivory-sweet-chapel-train-sweetheart-lace-beading-aline-sleeveless-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/56746-thickbox_default/sophia-tolli-fall-winter-2017-y21757-cosmo-ivory-sweet-chapel-train-sweetheart-lace-beading-aline-sleeveless-wedding-dress.jpg" alt="Sophia Tolli Fall/Winter 2017 Y21757 Cosmo Ivory Sweet Chapel Train Sweetheart Lace Beading Aline Sleeveless Wedding Dress 2" /></a>
+<a href="https://www.hectodress.com/sophia-tolli-bridal/17649-sophia-tolli-fall-winter-2017-y21757-cosmo-ivory-sweet-chapel-train-sweetheart-lace-beading-aline-sleeveless-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/56745-thickbox_default/sophia-tolli-fall-winter-2017-y21757-cosmo-ivory-sweet-chapel-train-sweetheart-lace-beading-aline-sleeveless-wedding-dress.jpg" alt="Sophia Tolli Fall/Winter 2017 Y21757 Cosmo Ivory Sweet Chapel Train Sweetheart Lace Beading Aline Sleeveless Wedding Dress 3" /></a>
+<a href="https://www.hectodress.com/sophia-tolli-bridal/17649-sophia-tolli-fall-winter-2017-y21757-cosmo-ivory-sweet-chapel-train-sweetheart-lace-beading-aline-sleeveless-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/56744-thickbox_default/sophia-tolli-fall-winter-2017-y21757-cosmo-ivory-sweet-chapel-train-sweetheart-lace-beading-aline-sleeveless-wedding-dress.jpg" alt="Sophia Tolli Fall/Winter 2017 Y21757 Cosmo Ivory Sweet Chapel Train Sweetheart Lace Beading Aline Sleeveless Wedding Dress 4" /></a>
+
+Buy it: [Sophia Tolli Fall/Winter 2017 Y21757 Cosmo Ivory Sweet Chapel Train Sweetheart Lace Beading Aline Sleeveless Wedding Dress](https://www.hectodress.com/sophia-tolli-bridal/17649-sophia-tolli-fall-winter-2017-y21757-cosmo-ivory-sweet-chapel-train-sweetheart-lace-beading-aline-sleeveless-wedding-dress.html "Sophia Tolli Fall/Winter 2017 Y21757 Cosmo Ivory Sweet Chapel Train Sweetheart Lace Beading Aline Sleeveless Wedding Dress")
+
+View more: [Sophia Tolli Bridal](https://www.hectodress.com/364-sophia-tolli-bridal "Sophia Tolli Bridal")
