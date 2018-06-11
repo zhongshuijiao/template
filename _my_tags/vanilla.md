@@ -1,0 +1,4 @@
+---
+slug: vanilla
+name: vanilla
+---
