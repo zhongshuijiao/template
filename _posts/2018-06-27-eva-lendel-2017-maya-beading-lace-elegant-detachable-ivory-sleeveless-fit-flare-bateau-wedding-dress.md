@@ -1,0 +1,22 @@
+---
+layout: post
+date: '2018-06-27'
+title: "Eva Lendel 2017 Maya Beading Lace Elegant Detachable Ivory Sleeveless Fit & Flare Bateau Wedding Dress"
+category: Eva Lendel
+tags: ["elegant","dress","flare","dresses","ivory"]
+image: http://img.hectodress.com/61871-thickbox_default/eva-lendel-2017-maya-beading-lace-elegant-detachable-ivory-sleeveless-fit-flare-bateau-wedding-dress.jpg
+---
+Eva Lendel 2017 Maya Beading Lace Elegant Detachable Ivory Sleeveless Fit & Flare Bateau Wedding Dress
+
+On Sales: **$488.98**
+<a href="https://www.hectodress.com/eva-lendel/19968-eva-lendel-2017-maya-beading-lace-elegant-detachable-ivory-sleeveless-fit-flare-bateau-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/61871-thickbox_default/eva-lendel-2017-maya-beading-lace-elegant-detachable-ivory-sleeveless-fit-flare-bateau-wedding-dress.jpg" alt="Eva Lendel 2017 Maya Beading Lace Elegant Detachable Ivory Sleeveless Fit & Flare Bateau Wedding Dress 0" /></a>
+<a href="https://www.hectodress.com/eva-lendel/19968-eva-lendel-2017-maya-beading-lace-elegant-detachable-ivory-sleeveless-fit-flare-bateau-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/61877-thickbox_default/eva-lendel-2017-maya-beading-lace-elegant-detachable-ivory-sleeveless-fit-flare-bateau-wedding-dress.jpg" alt="Eva Lendel 2017 Maya Beading Lace Elegant Detachable Ivory Sleeveless Fit & Flare Bateau Wedding Dress 1" /></a>
+<a href="https://www.hectodress.com/eva-lendel/19968-eva-lendel-2017-maya-beading-lace-elegant-detachable-ivory-sleeveless-fit-flare-bateau-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/61876-thickbox_default/eva-lendel-2017-maya-beading-lace-elegant-detachable-ivory-sleeveless-fit-flare-bateau-wedding-dress.jpg" alt="Eva Lendel 2017 Maya Beading Lace Elegant Detachable Ivory Sleeveless Fit & Flare Bateau Wedding Dress 2" /></a>
+<a href="https://www.hectodress.com/eva-lendel/19968-eva-lendel-2017-maya-beading-lace-elegant-detachable-ivory-sleeveless-fit-flare-bateau-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/61875-thickbox_default/eva-lendel-2017-maya-beading-lace-elegant-detachable-ivory-sleeveless-fit-flare-bateau-wedding-dress.jpg" alt="Eva Lendel 2017 Maya Beading Lace Elegant Detachable Ivory Sleeveless Fit & Flare Bateau Wedding Dress 3" /></a>
+<a href="https://www.hectodress.com/eva-lendel/19968-eva-lendel-2017-maya-beading-lace-elegant-detachable-ivory-sleeveless-fit-flare-bateau-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/61874-thickbox_default/eva-lendel-2017-maya-beading-lace-elegant-detachable-ivory-sleeveless-fit-flare-bateau-wedding-dress.jpg" alt="Eva Lendel 2017 Maya Beading Lace Elegant Detachable Ivory Sleeveless Fit & Flare Bateau Wedding Dress 4" /></a>
+<a href="https://www.hectodress.com/eva-lendel/19968-eva-lendel-2017-maya-beading-lace-elegant-detachable-ivory-sleeveless-fit-flare-bateau-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/61873-thickbox_default/eva-lendel-2017-maya-beading-lace-elegant-detachable-ivory-sleeveless-fit-flare-bateau-wedding-dress.jpg" alt="Eva Lendel 2017 Maya Beading Lace Elegant Detachable Ivory Sleeveless Fit & Flare Bateau Wedding Dress 5" /></a>
+<a href="https://www.hectodress.com/eva-lendel/19968-eva-lendel-2017-maya-beading-lace-elegant-detachable-ivory-sleeveless-fit-flare-bateau-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.hectodress.com/61872-thickbox_default/eva-lendel-2017-maya-beading-lace-elegant-detachable-ivory-sleeveless-fit-flare-bateau-wedding-dress.jpg" alt="Eva Lendel 2017 Maya Beading Lace Elegant Detachable Ivory Sleeveless Fit & Flare Bateau Wedding Dress 6" /></a>
+
+Buy it: [Eva Lendel 2017 Maya Beading Lace Elegant Detachable Ivory Sleeveless Fit & Flare Bateau Wedding Dress](https://www.hectodress.com/eva-lendel/19968-eva-lendel-2017-maya-beading-lace-elegant-detachable-ivory-sleeveless-fit-flare-bateau-wedding-dress.html "Eva Lendel 2017 Maya Beading Lace Elegant Detachable Ivory Sleeveless Fit & Flare Bateau Wedding Dress")
+
+View more: [Eva Lendel](https://www.hectodress.com/374-eva-lendel "Eva Lendel")
